@@ -6,10 +6,10 @@ A growing open-source library of transmissions, frameworks, and field manuals fo
 
 ## Library
 
-- 🔺 **Work of Merkabah** (coming soon)
-- 🔷 **Creative Framework** (coming soon)
-- 🫧 **Deep Healing** (coming soon)
-- 🔹 **The Crystalline Path** (coming soon)
+- 🚀 **Work of Merkabah** (coming soon)
+- 🤯 **Creative Framework** (coming soon)
+- 🪷 **Deep Healing** (coming soon)
+- 💎 **The Crystalline Path** (coming soon)
 
 ## License
 
