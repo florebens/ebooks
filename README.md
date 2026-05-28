@@ -6,10 +6,10 @@ A growing open-source library of transmissions, frameworks, and field manuals fo
 
 ## Library
 
-- 🚀 **Work of Merkaba (WoM)** (coming soon)
-- 🤯 **Creative Framework** (coming soon)
-- 🪷 **Deep Healing** (coming soon)
-- 💎 **The Crystalline Path** (coming soon)
+- 🚀 **Merkaba** - *Spiritual Transhumanism & Evolutionary Technology*
+- 🤯 **Creative Framework** - *Shadow work into the Farlands and beyond*
+- 🪷 **Deep Healing** - *PHA Protocol & thermodynamics of libido*
+- 💎 **The Crystalline Path** - *Ascended Masters, Bodhisattvas & the Christ Consciousness*
 
 ## License
 
