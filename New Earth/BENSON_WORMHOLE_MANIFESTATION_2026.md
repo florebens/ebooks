@@ -89,9 +89,9 @@ Most people attempting to manifest are running navigation with location services
 
 The wormhole opens from a located self; an online, sound node.
 
-HereNow is not always comfortable. It may contain grief, frustration, uncertainty, a body that aches, a situation unresolved. **Full placement does not mean the situation is good. It means you are honestly in it.** Not performing presence. Not bypassing what's real. Exactly here, without resistance to the coordinates.
+[HereNow is not always comfortable](https://github.com/florebens/worksheets/blob/fa8a434822e08f4de881ae0fbd88dae576de5a9d/New%20Earth/WORMHOLE_MANIFESTATION_WORKSHEET.md). It may contain grief, frustration, uncertainty, a body that aches, a situation unresolved. **Full placement does not mean the situation is good. It means you are honestly in it.** Not performing presence. Not bypassing what's real. Exactly here, without resistance to the coordinates.
 
-That honesty is not a weakness in the system. It is the activation condition.
+That honesty is the activation condition.
 
 HereNow is one pole of the entangled pair. It is not the starting line of a race. It is half of the wavefunction. Without it fully declared, the collapse cannot complete.
 
@@ -129,7 +129,7 @@ Most manifestation practice runs in question language: *where is it, why isn't i
 
 The wormhole does not open from that posture. The shift is syntactic before it is spiritual.
 
-A wh- question keeps you in the seeking position. It is a declaration of indetermination, disenfranchisement, an open-text answer that no one will fill. 
+A wh- question keeps you in the seeking position. It is a declaration of indetermination, disenfranchisement, an open-ended text box that no one will fill in. 
 
 In Wormhole Manifestation, instead, a command string operates from a set of assumptions: the network is live, the information exists, you have access.
 
@@ -139,16 +139,16 @@ Consider the difference:
 
 versus:
 
-`\u003Ccall TuxCatID, LastSeen, Urgent>`
+`<Call TuxCatID, LastSeen, Urgent>`
 
 The command string embeds premises the question destroys:
 
 - **A verb that assumes access.** *Call*, not *please help me locate.*
-- **A specific entanglement signature.** Not a category but a *this*, identified by the Bluetooth of your bond.
+- **A specific entanglement signature.** Not a category but a *this*, identified by the Bluetooth of the bond (more on this later.)
 - **Coordinates.** LastSeen anchors the query, reduces noise, gives the field something to work with.
 - **A priority flag.** Urgent is not panic. It is the coherence level the body is asked to mobilize.
 
-The Field does not respond to longing, because it is an open question with no parameters, command, or alignment. The Field responds only to precision. Feelings can be precise: a smell, a smile, a particular type of sorrow. The operative must work towards refining the instrument, the grammar, and the signal, so as to maximize scope of resonance across de Field.
+The field does not respond to longing, because it is an open question with no parameters, command, or alignment. The field responds only to precision. Feelings can be precise: a smell, a smile, a particular type of sorrow. The operative must work towards refining the instrument, the grammar, and the signal, so as to maximize scope of resonance across de Field.
 
 This is also why the body work in Chapter III matters at the query stage. A command sent from a body still braced in resistance is a malformed request. The syntax may be correct but the transmission is noisy. 
 
