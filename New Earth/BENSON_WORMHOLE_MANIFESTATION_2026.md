@@ -63,7 +63,7 @@ A wormhole in physics is not a tunnel drilled through space. It is a fold. Two d
 
 Wormhole Manifestation, then, is not about trying harder. It is about using the geometry.
 
-The bridge-builders are exhausted because they work on the surface. The wormhole opens when you stop building across and start folding *through* the parallel lines of reality: not \"jumping timelines\", not \"quantum manifestation\", but actual sensitivity to perceive the proximity of a fold; the chamanic stare into the abyss to select the right gateway, the timely switch, to catch a ride on the wings of a miracle.
+The bridge-builders are exhausted because they work on the surface. The wormhole opens when you stop building across and start folding *through* the parallel lines of reality: not \"jumping timelines\", not \"quantum manifestation\", but actual sensitivity to perceive the proximity of a fold; the shamanic stare into the abyss to select the right gateway, the timely switch, to catch a ride on the wings of a miracle.
 
 The current discourse on manifestation *vis a vis* quantum physics is a big nothing burger because it does not factor in the diamantine nature of the Cosmos. It simply assumes infinity and limitlessness as a given, instead of the razor sharp selection process actualized by the Design's Intelligence itself. 
 
