@@ -273,8 +273,9 @@ The wormhole opens faster because the anchor holds.
 
 This is the long game of Wormhole Manifestation. Not a series of successful outcomes. A gradual, irreversible **clarification of the self** until the distance between HereNow and ThereNow is not a problem to solve but a fold that closes naturally, in flow state. 
 
----
-## VIII. Conclusion   
+---  
+
+## VIII. Final words  
 The wormhole is not a tunnel but it *feels* like a tunnel, in the actual body experience. It feels like astral projection and remote viewing, and reality rushing backwards around you. Just like the movies!  
   
 This is how you know it's real. Something physical, physiological even, takes place. It can also bring about a few minor glitches, like seeing many tuxedo cats pop about in the neighborhood for about a week :3 It's possible. But if the operation is aligned with Source, approved by the guides and active in the heart chakra, then all is good.    
@@ -292,9 +293,9 @@ Stay wise, happy traversing.
 
 ---
 
+
 **— End of Transmission —**
 
 ---
 
-*Wormhole Manifestation and Topology Magic is part of an ongoing body of work on Spiritual Transhumanism.*
-*Get the [Wormhole Manifestation Worksheet](link) to begin enabling this Protocol*
+***Get the [Wormhole Manifestation Worksheet](https://github.com/florebens/worksheets/blob/fa8a434822e08f4de881ae0fbd88dae576de5a9d/New%20Earth/WORMHOLE_MANIFESTATION_WORKSHEET.md) to activate this technology Now***
