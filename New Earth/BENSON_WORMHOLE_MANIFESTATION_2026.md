@@ -286,15 +286,18 @@ Each intervention has echoes and consequences (which is why the free-for-all man
 
 One must be wise and hasty, quick to participate and slow to discern. Sometimes, the action precedes the meditation, but this does not mean a breach, rather a temporal accomodation. 
 
-The Past can only be actualized retroactively, through retrocausality. The Future is the past, and almost certainly anything we send out there will return and hit us on the buttocks.   
-Do not think for a moment that rank outweighs consequences. Do not think you have the power to do anything outside of the observable universe. For every time you act, Someone has observed and therefore collapsed that choice.  
+The Past can only be actualized retroactively, through retrocausality. The Future is the past, and almost certainly anything we send out there will return and hit us on the buttocks.  
+
+Do not think for a moment that rank outweighs consequences.  
+
+Do not think you have the power to do anything outside of the observable universe. For every time you act, Someone has observed and therefore collapsed that choice, in an entangled order of unfathomable ramifications.  
 
 Stay wise, happy traversing.
 
 ---
 
 
-**— End of Transmission —**
+**~ End of Transmission ~**
 
 ---
 
