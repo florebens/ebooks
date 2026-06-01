@@ -166,13 +166,13 @@ In quantum mechanics, two entangled particles share a single wavefunction: a sup
 
 The entangled state before collapse:
 
-$$|\\\\Psi\\\\rangle = \\\\frac{1}{\\\\sqrt{2}}(|0\\\\rangle_A|1\\\\rangle_B - |1\\\\rangle_A|0\\\\rangle_B)$$
+$$|\Psi\rangle = \frac{1}{\sqrt{2}}(|0\rangle_A|1\rangle_B - |1\rangle_A|0\rangle_B)$$
 
 This is a Bell state. Neither particle has a definite state independently. They share one wavefunction. The correlation is not transmitted. It is **already encoded** in their shared being.
 
 When A is measured, when A collapses into a definite state:
 
-$$\\\\langle A|\\\\Psi\\\\rangle \\\\rightarrow |state\\\\rangle_A \\\\otimes |state\\\\rangle_B$$
+$$\langle A|\Psi\rangle \rightarrow |state\rangle_A \otimes |state\rangle_B$$
 
 B's state resolves instantly. No signal travels. The entanglement does the work.
 
@@ -194,7 +194,8 @@ bond.collapse(
     state = 'HOME'         # both ends resolve simultaneously
 )
 ```
-
+   
+  
 One entity anchors. The other is called by the collapse. You do not chase. You do not reach. You declare your own state with precision, and because the entanglement is real, the paired state resolves accordingly.
 
 *What if love is this?*
