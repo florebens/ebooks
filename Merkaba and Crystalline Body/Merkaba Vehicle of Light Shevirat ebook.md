@@ -160,13 +160,17 @@ The Akh is not a soul at rest. It is an operative intelligence.
 
 ## The Pyramid Initiation
 
-The pyramid was not a tomb. It was a machine, an engine, a weapon, and a sacred ritualistic space. This polyvalence is the mark of an elevated civilization.
+The pyramid was not a tomb. It was a machine, an engine, a weapon, a monument, a hardware record device, and a sacred ritualistic space. This polyvalence is the mark of an elevated civilization.
 
 In Antiquity, the initiate entered the Pyramid (understood as concomitant with their own body, their own vessel) and underwent a series of rituals designed to transmute the carbon body into diamond: the Akh. The Akh is the solar template that connects with **Logos**, with **Ra**.
 
 The task: activate the Akh and bring it forward. Transfer consciousness from the carbon body to the light body. Ka and Ba ascend together through the pyramid, reach the moon, and unite, activating Christ consciousness. As this unified entity, they are transferred into the Akh. This is the **Ascension Path of Immortality**.
 
-Upon successfully transferring body consciousness, the initiate simultaneously activated the **Merkaba**.
+It is a ritual of **death and rebirth**, of resurrection into a higher, more evolved vessel and consciousness, a glorified body and soul.  
+
+This is the template for all that came after, in terms of mainstream and cult religious beliefs and practices. This is the secret that secret societies gatekeep and preserve. This is what caused wars, factions, and innumerable misunderstandings, misinterpretations and heresies. The original container was lost, and the remnant vessels broke, dispersing the divine spark in the wind.
+
+Upon successfully transferring body consciousness, the initiate simultaneously activated the **Merkaba**, as an organic continuum of the overflowing, stabilized energy field that overbears the physical vessel. Visible, like a strong aura around the body, a *cartouche*.
 
 The **Ankh** (or *Anj*) is the key to the individual vessel. In the hands of its master, it channels vital energy (Ka) with the specific signature (Ba) of its bearer. Bringing one's Ankh under another's nose is a gesture of blessing and protection: a gifted dose of one's own energy, a royal etheric seal.
 
