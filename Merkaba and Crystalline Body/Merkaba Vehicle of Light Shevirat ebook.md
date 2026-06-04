@@ -108,7 +108,7 @@ Ancient Egyptian spiritual culture was oriented around a single driving question
 
 The answer came in two tiers.
 
-**Eternity** was available to all. After death, the ordinary soul would walk the path of the **Duat**, facing the trials described in the *Book of the Dead*, and if successful, attain Eternity: the persistence of individual identity in the spiritual realm. Failure meant annihilation in the jaws of **Ammut**, the soul's energy reabsorbed by Source, its records erased.
+**Eternity** was available to all. After death, the ordinary soul would walk the path of the **Duat**, facing the trials described in the *Book of the Dead*, and if successful, attain Eternity: the persistence of individual identity in the spiritual realm. Failure meant annihilation by the jaws of **Ammut**, the soul's energy reabsorbed by Source, its records erased.
 
 **Immortality** was something else entirely. The elite, the initiates, were trained on an occult path toward apotheosis: a place among the Gods. Immortals are sovereign souls with the power to incarnate at will, traverse dimensions and create or destroy worlds. They govern their own path to ascension, without end.
 
@@ -124,7 +124,7 @@ The Merkaba was the corollary of decades of meticulous self-purification. The ri
 
 The word *Merkaba* is composed of three ancient Egyptian words:
 
-**MER** refers to the pyramid, literally "place of ascent." The vessel, the container, the vehicle of ascent. The Chariot. The Column. The Spine.
+**MER** refers to the pyramid, literally "place of ascent." The vessel, the container, the vehicle of ascent. The Chariot. The Spine. The Light Pillar: *fire in the middle*.
 
 **KA** is the breath of life, the divine breath, vital energy. The animating force.
 
