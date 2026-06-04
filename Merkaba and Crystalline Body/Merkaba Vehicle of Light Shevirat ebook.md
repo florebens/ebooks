@@ -114,7 +114,7 @@ The answer came in two tiers.
 
 This initiatic path began in childhood. In addition to instruction in legislation, politics, art and science, the initiate had to master operative, ritual and time magic. In sum: to become deeply knowledgeable of every aspect of the self and the cosmos.
 
-The path of immeasurable mystical powers is only accessible from the plateau of perfect self-mastery. The Greek motto *"know thyself"* is evidence that their philosophers were students of the Egyptians, as Plutarch documented. But *know thyself* is incomplete. *Know thyself and know Source* is the full instruction.
+The path of immeasurable mystical powers is only accessible from the plateau of perfect self-mastery. The Greek motto *"know thyself"* is evidence that their philosophers were students of the Egyptians, as Plutarch documented. But *know thyself* is incomplete. *Know thyself to know Source* is the full instruction.
 
 The Merkaba was the corollary of decades of meticulous self-purification. The rite of passage from Human to Immortal would, ideally, coincide with the ascension to the throne, priesthood or marriage: the zenith of social hierarchy, the cusp of life.
 
@@ -122,11 +122,9 @@ The Merkaba was the corollary of decades of meticulous self-purification. The ri
 
 ## The Word Itself: MER-KA-BA
 
-The word *Merkaba* is not simply a name. It is a map.
+The word *Merkaba* is composed of three ancient Egyptian words:
 
-It is composed of three ancient Egyptian words:
-
-**MER** refers to the pyramid, literally "place of ascent." The vessel, the container, the vehicle of ascent.
+**MER** refers to the pyramid, literally "place of ascent." The vessel, the container, the vehicle of ascent. The Chariot. The Column. The Spine.
 
 **KA** is the breath of life, the divine breath, vital energy. The animating force.
 
@@ -138,15 +136,15 @@ The **Mer** is the trajectory: the pyramid as the launch point, the channel thro
 
 The moon is the site of the great alchemical marriage. It is where the two poles of the self dissolve into each other and crystallize as the **Akh**: the transfigured, *magically effective* intelligence.
 
-The complete circuit: **MER** as the vehicle of ascent. **KA + BA** as the twin currents uniting in the lunar plane. **AKH** as what is born from that union: the immortal light body, now capable of communion with **Logos**, that is, **Ra**.
+The complete circuit: **MER** as the vehicle of ascent. **KA + BA** as the twin currents uniting in the lunar plane. **AKH** as what is born from that union: the immortal light body, now capable of communion with the Sun, **Logos**, that is, **Ra**.
 
-This is why, when the Abrahamic traditions deify the moon, they are preserving, without knowing it, the address of the destination. The moon was never just a celestial body. It was the plane of return.
+This union will produce Horus, the Son, the amphibious entity that integrates the opposites in harmony and glory. The human Reason, intelligence in the image of its Father, and the Soul, a subsidiary of the Mother.
 
 ---
 
 ## The Egyptian Soul: A Brief Glossary
 
-The Egyptians understood the human being as a composite of distinct energetic bodies and principles, each with its own function and fate.
+The Egyptians understood the human being as a composite of distinct energetic bodies and principles, each with its own function and fate. The Soul had at least seven components.
 
 **The Name** was inseparable from the person. To erase a name was to begin the erasure of the soul.
 
@@ -162,15 +160,11 @@ The Akh is not a soul at rest. It is an operative intelligence.
 
 ## The Pyramid Initiation
 
-The pyramid was not a tomb. It was a machine.
+The pyramid was not a tomb. It was a machine, an engine, a weapon, and a sacred ritualistic space. This polyvalence is the mark of an elevated civilization.
 
 In Antiquity, the initiate entered the Pyramid (understood as concomitant with their own body, their own vessel) and underwent a series of rituals designed to transmute the carbon body into diamond: the Akh. The Akh is the solar template that connects with **Logos**, with **Ra**.
 
 The task: activate the Akh and bring it forward. Transfer consciousness from the carbon body to the light body. Ka and Ba ascend together through the pyramid, reach the moon, and unite, activating Christ consciousness. As this unified entity, they are transferred into the Akh. This is the **Ascension Path of Immortality**.
-
-The practical mechanics of the ritual were as follows. The initiate was submerged in a sarcophagus of stone, filled with a liquid solution of specific herbal and mineral components. Metallic devices placed over the vessel produced precise sound vibrations that reverberated through the chamber and the liquid simultaneously. The initiate entered a state of deep meditation or hypnosis. Chants, prayers and magical amulets supported the process. The combined effect was not only regenerative at the cellular level, but transformative at the level of the light body. The aquatic element is directly linked to the sacred rite of submersion in the primordial waters of **Nut**, from which one emerges resurrected.
-
-The initiate was, in this process, reenacting the journey of **Osiris** (*katábasis*): his metamorphosis inside the ornate chest, traversing the Nile (the primordial waters of the Cosmos) and time itself, his body disintegrating and reforming, to re-emerge transfigured and resurrected.
 
 Upon successfully transferring body consciousness, the initiate simultaneously activated the **Merkaba**.
 
@@ -180,7 +174,7 @@ The **Ankh** (or *Anj*) is the key to the individual vessel. In the hands of its
 
 ## From Elite Knowledge to Lost Art
 
-In ancient times, the alchemical metamorphosis and the Merkaba were the crowning achievement of a praxis restricted to the Pharaohs and royalty, priests, favorites, scribes and top dignitaries. The Incarnate Gods, the Royals, were understood as a qualitatively different order of being from their vassals, regardless of wealth or fame.
+In ancient times, the alchemical metamorphosis and the Merkaba were the crowning achievement of a praxis restricted to the Pharaohs and royalty, priests, favorites, scribes and top dignitaries. The Incarnate Gods, the Royals, were understood as a qualitatively different order of being from their vassals, regardless of wealth or status.
 
 Important names were written or carved inside the **cartouche**, which represents the Merkaba, to signal: this is an Immortal.
 
@@ -188,7 +182,7 @@ Over time, access to this knowledge was broadened. Very few people could afford 
 
 Reproducing the rite today is impossible. Even with miraculous access to the occult knowledge, the incantations, the mechanics (none of which were ever written down, by the hermetic nature of the transmission), the pyramid is no longer active. And contemporary subjectivity would be utterly discordant with the process.
 
-Shevirat does not attempt to revive or restore ancient practices. If something was lost, it was for a reason. Each culture molds its own relationship with the divine. And institutionalized religions are, from Shevirat's perspective, **obsolete** to the needs of the contemporary human psyche. We are on the brink of an unprecedented evolutionary leap. The species requires a spiritual architecture built for this moment.
+Therefore, **Shevirat** does not attempt to revive or restore ancient practices. If something was lost, it was for a reason. Each culture molds its own relationship with the divine. And institutionalized religions are, from **Shevirat**'s perspective, **obsolete** to the needs of the contemporary human psyche. We are on the brink of an unprecedented evolutionary leap. The species requires a spiritual architecture built for this moment.
 
 ---
 
@@ -196,11 +190,13 @@ Shevirat does not attempt to revive or restore ancient practices. If something w
 
 At this cultural threshold, a more organic path has become available, as a historical exception: a way to unite Ka and Ba, activate the Akh, ascend and activate the Merkaba.
 
-This is what Shevirat offers: a simplified retrieval of the **Crystalline Path to Logos**, an intensive process of psychic healing and sovereign self-development, as an express initiation (*Sotapanna*) to immortality.
+This is what **Shevirat** has to offer: a simplified retrieval of the **Crystalline Path to Logos**, an intensive process of psychic healing and sovereign self-development, as an *express initiation* to immortality.
 
 The souls incarnated at this time, circa 2024, are fully equipped to complete this process. All it takes is the choice to begin.
 
-The Merkaba, in its essence, is a vibration: the purity, coherence and alignment of the self-sovereign path. Enlightenment achieved by alchemical grit and talent, discipline and devotion to excellence. The expansion of the Human Machine to and beyond its limits, through curiosity, harmony and a sense of play. The whimsical and the magical are, after all, deeply intertwined. Advanced civilizations do not compete, they cooperate. They do not gatekeep. They do not *work* in the way we understand the word. What they do is create worlds of unfathomable complexity and sophistication, continuously. This is what Humanity yearns to become. The next step of our Evolution, once upon a time within reach.
+The Merkaba, in its essence, is a vibration: the purity, coherence and alignment of the self-sovereign path. Enlightenment achieved by alchemical grit and skill, discipline and devotion to excellence. The expansion of the Human Machine to and beyond its limits, through curiosity, harmony and a sense of play. The whimsical and the magical are, after all, deeply intertwined.    
+
+Advanced civilizations do not compete, they cooperate. They do not gatekeep. They do not *work* in the way we understand the word. What they do is create worlds of unfathomable complexity and sophistication, continuously. This is what Humanity yearns to become. The next step of our Evolution, once upon a time, and once again, within reach.
 
 ---
 
