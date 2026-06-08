@@ -130,9 +130,7 @@ The competitive advantage this produces is not marginal. An activated human mach
 In a scenario where AI challenges human cognition at every level of mere computation, and where the climate crisis and civilizational collapse require adaptive responses beyond any known parameter set, the only adequate advantage is one that transcends computation entirely. Ethics, coherence, and direct access to Logos are not soft factors. They are the hard technical requirements for survival at the level of the species.
 The carbon machine, under catastrophic pressure, transmutes into diamond. The silicon machine, under the same pressure, melts.  
 
-This is the wager SPITRA proposes. It requires putting the body into it — allowing oneself to be traversed, constructing a new configuration from one’s own energetic materiality. The survival technology is the self. There is no external ark.  
-
-> ***Be your own ark.*** 
+This is the wager SPITRA proposes. It requires putting the body into it — allowing oneself to be traversed, constructing a new configuration from one’s own energetic materiality. The survival technology is the self. There is no ark. ***Be your own ark.*** 
 
   
 ## CONCLUSION  
