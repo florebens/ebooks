@@ -1,3 +1,11 @@
+#COSMIC LOVE
+### *Who we are, where do we come from and where are we going*
+
+### **By Florencia Benson**
+### *2026*
+
+---
+
 # Introduction
 
 Ancient solutions for urgent problems — such is the proposal we developed in the book *Spiritual Transhumanism* (SPITRA).
