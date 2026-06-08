@@ -9,6 +9,7 @@ A growing open-source library of transmissions, frameworks, and field manuals fo
 - 🌎 **New Earth** - *Spiritual Transhumanism & Evolutionary Technology*
 - 🪷 **Deep Healing** - *Restore, Expand & Activate the Human Machine*
 - 💎 **Merkaba & Crystalline Body** - *Ascended Masters, Bodhisattvas & the Christ Consciousness*
+- ⚕️ **Cosmic Architecture** - *the structure of the universe and hardcore Physics*
 
 ## License
 
