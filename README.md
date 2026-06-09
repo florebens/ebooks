@@ -6,9 +6,9 @@ A growing open-source library of transmissions, frameworks, and field manuals fo
 
 ## Library
 
-- 🩸 **Wounded** - *the weary traveller who needs deep healing, restoration, comfort*
-- 🧪 **Rationalist** - *the curious and rigorous who will not settle for half-baked answers*
-- 🔍 **Seeker** - *the one who has peeped through the Veil and now can't unsee it*
+- 🩸 **[Wounded](https://github.com/florebens/ebooks/tree/b675be2e065be2c339488f274f492677dca8a3f8/Wounded)** - *the weary traveller who needs deep healing, restoration, comfort*
+- 🧪 **[Rationalist](https://github.com/florebens/ebooks/tree/b675be2e065be2c339488f274f492677dca8a3f8/Rationalist)** - *the curious and rigorous who will not settle for half-baked answers*
+- 🔍 **[Seeker](https://github.com/florebens/ebooks/tree/b675be2e065be2c339488f274f492677dca8a3f8/Seeker)** - *the one who has peeped through the Veil and now can't unsee it*
 
 ## License
 
