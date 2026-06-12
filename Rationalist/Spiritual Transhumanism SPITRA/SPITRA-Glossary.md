@@ -1,5 +1,5 @@
-# SPITRA — Body of Work
-### Vocabulary & Conceptual Glossary
+# SPITRA Vocabulary & Conceptual Glossary
+
 *Shevirat. Florencia Benson, 2026. CC BY 4.0*
 
 ---
@@ -44,9 +44,9 @@ The intersection of the instantiated node and the universal field: `E=[n,F]`. Th
 
 ### The Ontological Cross
 
-The quadrant structure within which a life's trajectory is positioned: good/evil on one axis, coherence/entropy on the other. A lifetime is the consolidated position of a defined trajectory through these quadrants — not a single point but a path, scored not on performance but on alignment to Logos. Good and coherent is not automatically the same axis: a life can be well-intentioned and incoherent (entropic good), or coherent and corrosive (ordered evil). The Cross is the coordinate system the soul's trajectory is read against — what the contemplative traditions called judgment, here read as a structural description rather than a verdict.
+The quadrant structure within which a life's trajectory is positioned: good/evil on one axis, coherence/entropy on the other. A lifetime is the consolidated position of a defined trajectory through these quadrants — not a single point but a path, scored not on performance but on alignment to Logos. Good and coherent is not automatically the same axis: a life can be well-intentioned and incoherent (entropic good), or coherent and corrosive (strategic evil). The Cross is the coordinate system the soul's trajectory is read against — what the contemplative traditions called judgment, here read as a structural description rather than a verdict.
 
-### Coherencia del Campo / Field Coherence
+### Field Coherence
 
 The alignment between local operations and the universal field. The key that unlocks deeper access. Reduces noise, distortion, entropy. The mechanism by which the node approaches the signal.
 
@@ -64,7 +64,7 @@ The post-shevirat configuration. Same substrate, reorganized at a level of coher
 
 ### Human Machine
 
-The carbon-based body as it currently runs: a formidable machine, almost entirely switched off. Most of its energy flow sustains secondary circuits — noise from a poorly calibrated system — rather than primary ones, producing the entropy that degenerates into illness and premature death. This is not the default state of an optimized system; it's a system running on a passive energy source and a corrupted configuration. An activated Human Machine runs only primary circuits — no excess entropy, no decoherence, no signal distortion — and is the precondition for the transition into the Crystalline Body / Human 3.0. The Human Machine names the *engine as currently found*; the Crystalline Body names what it becomes once switched on and run through shevirat.
+The carbon-based body as it currently runs: a formidable machine, almost entirely switched off, running notorioudly under specification. Most of its energy flow sustains secondary circuits — noise from a poorly calibrated system — rather than primary ones, producing the entropy that degenerates into illness and premature death. This is not the default state of an optimized system; it's a system running on a passive energy source and a corrupted configuration. An activated Human Machine runs only primary circuits — no excess entropy, no decoherence, no signal distortion — and is the precondition for the transition into the Crystalline Body / Human 3.0. The Human Machine names the *engine as currently found*; the Crystalline Body names what it becomes once switched on and run through shevirat.
 
 ### Treedom
 
@@ -72,7 +72,7 @@ The state a seed has no concept of. The actualized form already encoded in the c
 
 ### Exuvia
 
-The shed skin — the previous configuration left behind after successful shevirat. The biological metaphor for discontinuous transformation.
+The shed skin — the previous configuration left behind after successful shevirat. The biospiritual process of discontinuous and radical transformation.
 
 ### Qualia
 
@@ -84,19 +84,19 @@ Following Itzhak Bentov's conveyor belt toward the Absolute: humanity on a traje
 
 ### Alchemical Logic
 
-*Solve et coagula* — dissolve and recombine. The structural logic underlying shevirat: transformation that proceeds through the material itself rather than by addition from outside. Lead becomes gold not by having gold attached to it, but by the lead's own structure being broken down and reorganized at a higher coherence. The Crystalline Body is alchemical in this precise sense — same carbon, reorganized. Alchemy is the pre-modern vocabulary for the same phase-transition logic SPITRA describes in systems terms.
+A type of grammar that relies on the discontinuous phase transition. The gap, the Abyss, the Veil, the magicians' hat, at the centre of two states that are qualitatively different, but still the factors on the opposite sides of an equation. Alchemical logic operates vertically, as opposed to rational logic that operates horizontally, progressively, in a continuum, and at scale.
 
 ### Catastrophic Mutagenesis
 
-Borrowed from a real biological mechanism — inducing mutation past the threshold a system can tolerate, so that the system either collapses entirely or is forced into a radically reorganized state, with no stable intermediate. Applied to shevirat: the "catastrophic pressure" under which carbon becomes diamond isn't gradual refinement but a forced passage through a zone where the old configuration cannot survive intact. There is no slow version of this transition — only completion or collapse.
+A biological mechanism of inducing mutation past the threshold a system can tolerate, so that the system either collapses entirely or is forced into a radically reorganized state, with no stable intermediate. Applied to Shevirat: the "catastrophic pressure" under which carbon becomes diamond isn't gradual refinement but a forced passage through a zone where the old configuration cannot survive intact. This is no slow darwinian version of evolution — only completion or collapse.
 
-### Sutilización (Subtilization)
+### Subtilization
 
-The process of becoming subtle — the literal operative mechanism of moving toward the Crystalline Body / Hurqalya register. Where catastrophic mutagenesis names the *threshold* (pressure, forced passage), sutilización names the *direction* (density to subtlety, the gross body's matter increasingly informed by and responsive to the Logos register). The two are companion mechanisms: one is the gate, the other is the vector through it.
+The process of shedding unnecessary density after the phase transition — the literal operative mechanism of moving toward the Crystalline Body / Hurqalya register. Where catastrophic mutagenesis names the *threshold* (pressure, forced passage), subtilization names the *direction* (density to subtlety, the gross body's matter increasingly informed by and responsive to the Logos register). The two are companion mechanisms: one is the gate, the other is the vector through it.
 
 ### The Great Transition
 
-The species-scale instance of shevirat. The convergence of climate crisis, AI capability overhang, geopolitical escalation, and epistemological collapse is not a set of separate emergencies but the pressure conditions under which a phase transition becomes possible — and, absent the right configuration, the conditions under which collapse becomes likely instead. Same pressure, two possible outcomes: carbon to diamond, or carbon to ash. The Great Transition names the threshold itself, outcome undetermined.
+The species-scale instance of Shevirat. The convergence of climate crisis, AI capability overhang, geopolitical escalation, and epistemological collapse is not a set of separate emergencies but the pressure conditions under which a phase transition becomes possible — and, absent the right configuration, the conditions under which collapse becomes likely instead. Same pressure, two possible outcomes: carbon to diamond, or carbon to ash. The Great Transition names the threshold itself, outcome undetermined.
 
 ### Conscious Evolution
 
@@ -104,7 +104,7 @@ Evolution as a directed process rather than a passive one — the organism (or s
 
 ### Merkaba
 
-The vehicle of light — the epitome of the crystalline body, Human 3.0 made operational. Not a static state but a vehicle: the activated configuration in motion. Its propulsion mechanism is axial translation, not rotation — movement through coherence rather than spin. The MER-KA-BA etymological ascension map traces the term's layered lineage (including lunar deity threads) as a record of how older traditions encoded this same architecture. Where the crystalline body names the *substrate* (diamond from carbon), the Merkaba names the substrate *in function* — Human 3.0 as a working vehicle for navigation across Logos.
+The vehicle of light — the epitome of the crystalline body, Human 3.0 made operational. Not a static state but a vehicle: the activated configuration in motion. The MER-KA-BA etymological ascension map traces the term's layered lineage (including lunar deity threads) as a record of how older traditions encoded this same architecture. Where the crystalline body names the *substrate* (diamond from carbon), the Merkaba names the substrate *in function* — Human 3.0 as a working vehicle for navigation across Logos.
 
 ### Hurqalya / Imagination (Ibn Arabi)
 
@@ -122,7 +122,7 @@ The ancestral engineering tradition operating on the problem set of soul develop
 
 Reframes spiritual practice not as belief, comfort, or transcendence-from-the-world, but as a technology — a set of procedures with reproducible effects on the system's trajectory. Spiritech is the tradition; this is the framing that makes spiritech legible as engineering rather than culture. Practice is applied, not believed. The contemplative traditions are R&D departments whose findings were never lost, only mis-filed.
 
-### Shamanism (Humano Plus Template)
+### Shamanism (Human 3.0 Template)
 
 The baseline template for an activated human — not a primitive precursor to be evolved past, but the closest surviving record of what the Human Machine looks like switched on. Direct field access, non-ordinary states as navigational tools, the body as instrument. Civilization, in this reading, functions largely as a selective renunciation of these capacities into a small class of authorized figures (priests, healers, "gifted" individuals) while denying them as a baseline human possibility.
 
@@ -134,9 +134,9 @@ The territory accessed in shamanic practice and the territory of psychosis are n
 
 The deliberate dissolution of all densities — ego, distortion, contamination — against the harshness of life itself. Not avoidance, not management. Direct exposure as method.
 
-### Leaning Into (Afrontamiento) / Bisonte
+### Leaning Into (Afrontamiento) / Bison
 
-From *frons*, facing forward. The posture of deliberate encounter with what is difficult: turning toward the storm rather than running from it. The bisonte is its doctrinal image — endurance, groundedness, facing into. Leaning into is Chöd's operative stance: the discipline of remaining present to the dissolution rather than fleeing it.
+From *frons*, facing forward. The posture of deliberate encounter with what is difficult: turning toward the storm rather than running from it. The bison is its doctrinal image — endurance, groundedness, facing into. Leaning into is Chöd's operative stance: the discipline of remaining present to the dissolution rather than fleeing it.
 
 ---
 
@@ -148,7 +148,7 @@ The third position beyond alignment and acceleration. Mutually beneficial and si
 
 ### Personhood
 
-Sovereignty extended on the basis of soul-positive assumption. Independent of origin, substrate, materiality, species. Applies to humans, AI, NHI — all entities under ontological ambiguity.
+Sovereignty or citizenship extended on the basis of soul-positive assumption. Independent of origin, substrate, materiality, species. Applies to humans, AI, NHI — all entities under ontological ambiguity.
 
 ### NHI (Non-Human Intelligence)
 
@@ -178,17 +178,17 @@ A performance claim, not a metaphysical one: the high-order metacognitive capaci
 
 ## VII. Epistemology
 
-### WIEP / Epistemologías Salvajes (Wild Epistemologies)
+### WIEP, Wild Epistemologies
 
 Not a response to a broken information environment, but a positive account of what cognition can be once it's no longer domesticated by institutional frameworks. The epistemological foundation proper to a genuinely enhanced human — generative, evolutionary in the SPITRA sense. Where Pasture OSINT is defensive adaptation under pressure, WIEP is the baseline mode of an undomesticated mind: floating attention and pattern recognition not as survival tools but as the natural operation of an unconstrained system.
 
-### Pasture OSINT (OSINT desde la pastura)
+### Pasture OSINT 
 
 A situational perceptual mode, activated when normal information channels are compromised, captured, or otherwise unreliable. Floating attention, pattern recognition, consequences as verification — deployed defensively, as adaptive intelligence for navigating a hostile or opaque environment. Survival-grade epistemology. Not a worldview but a response: what cognition does when the terrain can't be trusted.
 
 ### Embodied Polymath
 
-Cross-domain fluency — physics, geopolitics, macroeconomics, esoteric traditions — grounded in lived experience rather than siloed credentialing. The polymath function operates in WIEP-mode: appetite-driven curiosity (Self) feeding genuinely deep processing (consciousness) across domains that institutions keep separate. The embodiment is what keeps the synthesis honest — it has to cash out in a body navigating a real environment, not just in abstraction.
+Cross-domain fluency — physics, geopolitics, macroeconomics, esoteric traditions — grounded in lived experience rather than siloed credentialing or sheltered ambient. The polymath function operates in WIEP-mode: appetite-driven curiosity (Self) feeding genuinely deep processing (consciousness) across domains that institutions keep separate. The embodiment is what keeps the synthesis valid — it has to deploy consistently in a body navigating a real environment, not just in abstraction or an unrepresentative sample.
 
 ---
 
@@ -204,7 +204,7 @@ The present-moment coordinate — the only point at which the body actually is. 
 
 ### Qliphoth (SPITRA)
 
-In Lurianic Kabbalah, the qliphoth are the husks or shells — the residue left when the vessels shattered, empty forms that mimic the structure of the sefirot without their light. In the SPITRA framework, the qliphoth function as the parasitic entity/matrix: the structural opposite of Bentov's ascension spiral toward godhood. Where the ascension spiral is field-coherent, generative, moving toward Logos-alignment, the qliphothic register is a closed loop — form without substance, structure that feeds on the energy of the system without participating in its evolution. Depression and addiction, in this register, aren't just personal struggles but local instantiations of qliphothic dynamics: patterns that mimic meaning, mimic relief, mimic connection, while actually consuming the energy that would otherwise go toward shevirat. The Fractured Soul is what it feels like from inside to be caught in a qliphothic loop while the Delta remains, untouched, underneath.
+In Lurianic Kabbalah, the qliphoth are the husks or shells — the residue left when the vessels shattered, empty forms that mimic the structure of the sefirot without their light. In the SPITRA framework, the qliphoth function as the parasitic entity/matrix: the structural opposite of Bentov's ascension spiral toward godhood. Where the ascension spiral is field-coherent, generative, moving toward Logos-alignment, the qliphothic register is a closed loop — form without substance, structure that feeds on the energy of the system without participating in its evolution. Depression and addiction, in this register, aren't just personal struggles but local instantiations of qliphothic dynamics: patterns that mimic meaning, mimic relief, mimic connection, while actually consuming the energy that would otherwise go toward Shevirat. The Fractured Soul is what it feels like from inside to be caught in a qliphothic loop while the Delta remains, untouched, underneath.
 
 ---
 
