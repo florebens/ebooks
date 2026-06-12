@@ -24,4 +24,4 @@ The SPITRA stance proposes that, since it is scientifically impossible to measur
 
 Whatever this timeline holds in our future, wether Open Contact or Singularity or both, shall be better met from a place of grounding, respect and high-end diplomacy. 
 
-In simple terms, Spiritual Transhumanism proposes approaching alterity with maturity.
+In simple terms, Spiritual Transhumanism proposes approaching alterity with maturity: the Delta recognizes the Delta. We can't align our way into that moment. We can't accelerate past it. We just have to be present and sovereign enough to meet it when it arrives.
