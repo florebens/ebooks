@@ -1,5 +1,5 @@
 # COSMIC LOVE
-### *Who we are, where do we come from and where are we going*
+### *Who are we, where do we come from and where are we going*
 
 ### **By Florencia Benson**
 ### *2026*
