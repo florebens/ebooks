@@ -2,7 +2,7 @@
 
 There are two camps amongst the tech leaders at present.  
 
-The alignment camp, led by Anthropic, and is pushing for more and better policy, audits and slowing down. They want proper control of AI, in order to hold humanity at the center.   
+The alignment camp, led by Anthropic, is pushing for more and better policy, audits and slowing down. They want proper control of AI, in order to hold humanity at the center.   
 
 The other, of accelerationist flavor, contends that said control is not possible nor desirable. Elon Musk envisions a steep curve where money will be soon irrelevant, a future with Universal Basic Income (UBI) and all our needs met. Jensen Huang sees a noosphere of agents conducting business, policy and social interactions, a dead internet of things basically. Humans would be carefree and cared for in this scenario.  
 
