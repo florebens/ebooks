@@ -1,6 +1,6 @@
 # AI alignment, acceleration and convergence 
 
-There are two camps amongst the tech leaders at present.  
+There are two camps amongst the tech leaders at present (June, 2026).  
 
 The alignment camp, led by Anthropic, is pushing for more and better policy, audits and slowing down. They want proper control of AI, in order to hold humanity at the center.   
 
