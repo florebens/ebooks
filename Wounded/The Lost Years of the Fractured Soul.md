@@ -62,7 +62,9 @@ That does not mean just passively sitting there, meditating amongst the flames. 
 
 Your goal is to inhabit the house, fully, comfortably, peacefully, in a constant state of quiet bliss. There is no other house. You cannot be homeless. This is your house.
 
-The first task is to decouple the fire from the cause. Depression, addiction, anxiety, fear, shame, are flames. Symptoms. It is how your Fractured Soul shows up in the timeline, in the embodied crossroad of the HereNow. Your nervous system, loyal to the body, wants you fully and truthfully present in the house. That is why it activates the alarm: it’s beckoning you back.   
+The first task is to decouple the fire from the cause. 
+
+Depression, addiction, anxiety, fear, shame, are flames. Symptoms. It is how your Fractured Soul shows up in the timeline, in the embodied crossroad of the HereNow. Your nervous system, loyal to the body, wants you fully and truthfully present in the house. That is why it activates the alarm: it’s beckoning you back.   
 
 Your nervous system won’t take no for an answer. It will not listen to your excuses, pleads, nor silent treatment. There is no range, no spectrum: just a switch. And it will be turned off when, and only when, the criteria are met. You are either fully here or not. If not: alarm. If yes: no alarm. That is the nervous system’s sole circuit.
 
