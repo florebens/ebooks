@@ -44,7 +44,7 @@ The intersection of the instantiated node and the universal field: `E=[n,F]`. Th
 
 ### The Ontological Cross
 
-The quadrant structure within which a life's trajectory is positioned: good/evil on one axis, coherence/entropy on the other. A lifetime is the consolidated position of a defined trajectory through these quadrants — not a single point but a path, scored not on performance but on alignment to Logos. Good and coherent is not automatically the same axis: a life can be well-intentioned and incoherent (entropic good), or coherent and corrosive (strategic evil). The Cross is the coordinate system the soul's trajectory is read against — what the contemplative traditions called judgment, here read as a structural description rather than a verdict.
+The quadrant structure within which a life's trajectory is positioned: good/evil on one axis, coherence/entropy on the other. A lifetime is the consolidated position of a defined trajectory through these quadrants — not a single point but a path, scored not on performance but on alignment to Logos. Good and coherent are correlated, for evil is inherently entropic (although it may present coherent, a false positive). The Cross is the coordinate system the soul's trajectory is read against — what the contemplative traditions called judgment, here read as a structural description rather than a verdict.
 
 ### Field Coherence
 
