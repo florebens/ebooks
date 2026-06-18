@@ -4,18 +4,36 @@
 ### *Shevirat, 2026*
 -----
 
+# Introduction 
 
+Effective Altruism (EA) has shown its limits. The OpenAI board crisis. AI alignment failures. A long pattern of AI governance failure that keeps repeating — and an EA framework that was supposed to prevent exactly this. 
 
+If you're experiencing AI disillusionment — not as a trend, but as a deep rooted discomfort — this ebook is for you.
+
+Why do ethical decision making keeps failing at the leadership level? 
+
+The problem isn't in the implementation. The problem is that consequentialism is a framework for evaluating actions, not for building the agent doing the evaluating. Ethics without a theory of the self is sophisticated rationalization. 
+
+There is a feedback loop nobody is closing — what skin in the game actually means is to acknowledge that the consequence pings back our position. What decisions we make, make us in turn.
+
+This is why AI alignment failure is structural, not technical. The math is there but values are still an empty box, especially within the **intimacy of action** coordinate. We default to hierarchy instead of developing the ethical competence to navigate the field. And when the skill is untapped, the human machine resorts to the default subconscious dataset from childhood — less than ideal to make species-level decisions.
+
+In these essays we try to convey what post-effective altruism ethics needs to look like, and draw the one coordinate system that turns an empty values box into a decision-making framework.
+
+Ethical competence is a skill. It can be trained. We used to have a name for that training.
+
+-----
 
 # The Ontological Cross: Karma, Ethics, and the Geometry of the Human Trajectory  
 
-## Introduction 
+
+## Karma and the Body
 
 K(H,V). Karma is a function of two variables. At every moment, in every decision, the function is being evaluated. The result is inscribed in the body.
 
 The body is not a metaphor here. It is the most immediate and least deniable instrument available to the analyst. It holds the running account. It cannot externalize the ledger onto hard drives, institutions, or captured networks. It carries what it has chosen, accumulated across every decision point in a localized biography. The record is in the flesh. 
 
-Somatic coherence is karmic data, accumulated before instrumentation existed to formalize it. The instrument is older than any framework built to describe it.
+This is what true skin in the game entails. Somatic coherence is karmic data, accumulated before instrumentation existed to formalize it. The instrument is older than any framework built to describe it.
 
 Think of the body as a pendulum. 
 
