@@ -16,7 +16,7 @@ The problem isn't in the implementation. The problem is that consequentialism is
 
 There is a feedback loop nobody is closing — what skin in the game actually means is to acknowledge that the consequence pings back our position. What decisions we make, make us in turn.
 
-This is why AI alignment failure is structural, not technical. The math is there but values are still an empty box, especially within the **intimacy of action** coordinate. We default to hierarchy instead of developing the ethical competence to navigate the field. And when the skill is untapped, the human machine resorts to the default subconscious dataset from childhood — less than ideal to make species-level decisions.
+This is why AI alignment failure is structural, not technical. The math is there but values are still an empty box, especially within the **intimacy of action** coordinate. When the moment of truth arrives, we default to hierarchy instead of developing the ethical competence to navigate the field. And when the skill is untapped, the human machine resorts to the preset subconscious dataset from childhood — less than ideal to make species-level decisions.
 
 In these essays we try to convey what post-effective altruism ethics needs to look like, and draw the one coordinate system that turns an empty values box into a decision-making framework.
 
