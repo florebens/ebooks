@@ -93,7 +93,11 @@ She is diving, rearranging, realigning, finessing. She is recalibrating.
 
 She might even be busy fixing other timelines, fighting wars we know nothing about, or simply processing, detoxing, debloating, buffering or compiling a new configuration. Perhaps she has something to shed, to grieve, to give; perhaps, a promise or commitment to honor. The Deep Soul is certainly improving herself through our incarnation, traversing the ontological cross of ethical coherence and the high stakes involved in it (see *Cosmic Love*).
 
-Moreover, sometimes a Soul decides to participate in the Tikkun Olam, repairing a shredded piece of the cosmic fabric. This maintenance work is expensive, and the currency is –you guessed it– pain. Authentic, incontestable coins of actual lived experience. Pain is the highest denomination, the purest alloy of said lived experience. Pleasure is a close second, because although it activates the same nodes, it tends towards decadence, entropy; whereas pain is a force in the opposite direction, coherence, optimization, a lean strong signal.
+Moreover, sometimes a Soul decides to participate in the Tikkun Olam, repairing a shredded piece of the cosmic fabric. This maintenance work is expensive, and the currency is –you guessed it– pain. More accurately, it's *sacrifice*, whether it's made consciously or unconsciously. That's how you fix something you didn't break.
+
+Authentic, incontestable coins of actual lived experience. 
+
+Pain is the highest denomination, the purest alloy of said lived experience, offered for the benefit of another being. Credit given with no return. Pain is a force in the direction of coherence, optimization, a lean strong signal.
 
 The Soul is therefore displaced, fractured, partially here and partially in other realms. The Deep Soul is only half-committed to this timeline; she needs an axis or, better yet, a **fulcrum** for leverage. This timeline is convenient, structurally sufficient. Unfortunately, **the human machine does not contain built-in capacity to render the whole picture**. So, it’s just sitting there, staring at static, a blank –or black– screen.     
 
