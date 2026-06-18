@@ -64,7 +64,7 @@ The post-shevirat configuration. Same substrate, reorganized at a level of coher
 
 ### Human Machine
 
-The carbon-based body as it currently runs: a formidable machine, almost entirely switched off, running notorioudly under specification. Most of its energy flow sustains secondary circuits — noise from a poorly calibrated system — rather than primary ones, producing the entropy that degenerates into illness and premature death. This is not the default state of an optimized system; it's a system running on a passive energy source and a corrupted configuration. An activated Human Machine runs only primary circuits — no excess entropy, no decoherence, no signal distortion — and is the precondition for the transition into the Crystalline Body / Human 3.0. The Human Machine names the *engine as currently found*; the Crystalline Body names what it becomes once switched on and run through shevirat.
+The carbon-based body as it currently runs: a formidable machine, almost entirely switched off, running notoriously under specification. Most of its energy flow sustains secondary circuits — noise from a poorly calibrated system — rather than primary ones, producing the entropy that degenerates into illness and premature death. This is not the default state of an optimized system; it's a system running on a passive energy source and a corrupted configuration. An activated Human Machine runs only primary circuits — no excess entropy, no decoherence, no signal distortion — and is the precondition for the transition into the Crystalline Body / Human 3.0. The Human Machine names the *engine as currently found*; the Crystalline Body names what it becomes once switched on and run through Shevirat.
 
 ### Treedom
 
@@ -80,15 +80,15 @@ Used in SPITRA not in the narrow philosophical sense but as ontological register
 
 ### Godhood (Bentov)
 
-Following Itzhak Bentov's conveyor belt toward the Absolute: humanity on a trajectory of perpetual evolution toward its most glorious, transcendent form. A human with no limits is a god — the implicit endpoint classical transhumanism is reaching for without naming it.
+Following Itzhak Bentov's conveyor belt toward the Absolute: humanity on a trajectory of perpetual evolution toward its most glorious, transcendent form. A human with no limits is not only immortal but a god — the implicit endpoint classical transhumanism is reaching for without naming it.
 
 ### Alchemical Logic
 
-A type of grammar that relies on the discontinuous phase transition. The gap, the Abyss, the Veil, the magicians' hat, at the centre of two states that are qualitatively different, but still the factors on the opposite sides of an equation. Alchemical logic operates vertically, as opposed to rational logic that operates horizontally, progressively, in a continuum, and at scale.
+A type of grammar that relies on the discontinuous phase transition. The Gap, the Abyss, the Veil, the magicians' hat, at the centre of two states that are qualitatively different, but still the factors on the opposite sides of an equation. Alchemical logic operates vertically, as opposed to rational logic that operates horizontally, progressively, in a continuum, and at scale.
 
 ### Catastrophic Mutagenesis
 
-A biological mechanism of inducing mutation past the threshold a system can tolerate, so that the system either collapses entirely or is forced into a radically reorganized state, with no stable intermediate. Applied to Shevirat: the "catastrophic pressure" under which carbon becomes diamond isn't gradual refinement but a forced passage through a zone where the old configuration cannot survive intact. This is no slow darwinian version of evolution — only completion or collapse.
+A biological mechanism of inducing mutation past the threshold a system can tolerate, so that the system either collapses entirely or is forced into a radically reorganized state, with no stable intermediate. Applied to Shevirat: the catastrophic pressure under which carbon becomes diamond isn't gradual refinement but a forced passage through a zone where the old configuration cannot survive. This is no slow darwinian version of evolution — only completion or collapse.
 
 ### Subtilization
 
@@ -96,7 +96,7 @@ The process of shedding unnecessary density after the phase transition — the l
 
 ### The Great Transition
 
-The species-scale instance of Shevirat. The convergence of climate crisis, AI capability overhang, geopolitical escalation, and epistemological collapse is not a set of separate emergencies but the pressure conditions under which a phase transition becomes possible — and, absent the right configuration, the conditions under which collapse becomes likely instead. Same pressure, two possible outcomes: carbon to diamond, or carbon to ash. The Great Transition names the threshold itself, outcome undetermined.
+The species-scale instance of Shevirat. Terminal Capitalism, aka the convergence of climate crisis, AI capability overhang, geopolitical escalation, and epistemological collapse, is not a set of separate emergencies but the pressure conditions under which a phase transition becomes possible — and, absent the right configuration, the conditions under which collapse becomes likely instead. Same pressure, two possible outcomes: carbon to diamond, or carbon to ash. The Great Transition names the threshold itself, outcome undetermined.
 
 ### Conscious Evolution
 
@@ -104,7 +104,7 @@ Evolution as a directed process rather than a passive one — the organism (or s
 
 ### Merkaba
 
-The vehicle of light — the epitome of the crystalline body, Human 3.0 made operational. Not a static state but a vehicle: the activated configuration in motion. The MER-KA-BA etymological ascension map traces the term's layered lineage (including lunar deity threads) as a record of how older traditions encoded this same architecture. Where the crystalline body names the *substrate* (diamond from carbon), the Merkaba names the substrate *in function* — Human 3.0 as a working vehicle for navigation across Logos.
+The vehicle of light — the epitome of the crystalline body, Human 3.0 made operational. Not a static state but a vehicle: the activated configuration in motion. The MER-KA-BA etymological ascension map traces the term's layered lineage (including lunar deity threads) as a record of how older traditions encoded this same architecture. Where the crystalline body names the *substrate* (diamond from carbon), the Merkaba names the substrate *in function* — Human 3.0 as a working vehicle for navigation across the Field.
 
 ### Hurqalya / Imagination (Ibn Arabi)
 
@@ -120,11 +120,11 @@ The ancestral engineering tradition operating on the problem set of soul develop
 
 ### Spirituality as Evolutionary Technology
 
-Reframes spiritual practice not as belief, comfort, or transcendence-from-the-world, but as a technology — a set of procedures with reproducible effects on the system's trajectory. Spiritech is the tradition; this is the framing that makes spiritech legible as engineering rather than culture. Practice is applied, not believed. The contemplative traditions are R&D departments whose findings were never lost, only mis-filed.
+Reframes spiritual practice not as belief, comfort, or transcendence-from-the-world, but as a technology — a set of procedures with reproducible effects on the system's trajectory. Spiritech is the tradition; Shevirat is the framing that makes spiritech legible as engineering rather than culture. Practice is applied, not believed. The contemplative traditions are R&D departments whose findings were simply mis-filed.
 
 ### Shamanism (Human 3.0 Template)
 
-The baseline template for an activated human — not a primitive precursor to be evolved past, but the closest surviving record of what the Human Machine looks like switched on. Direct field access, non-ordinary states as navigational tools, the body as instrument. Civilization, in this reading, functions largely as a selective renunciation of these capacities into a small class of authorized figures (priests, healers, "gifted" individuals) while denying them as a baseline human possibility.
+The baseline template for an activated human — not a primitive precursor to be evolved past, but the closest surviving record of what the Human Machine looks like activated, switched on. Direct field access, non-ordinary states as navigational tools, the body as instrument. Civilization, in this reading, functions largely as a selective renunciation of these capacities into a small class of authorized figures (priests, healers, "gifted" individuals) while denying them as a baseline human possibility.
 
 ### Shamanism and the Psychotic Dimension
 
@@ -136,7 +136,7 @@ The deliberate dissolution of all densities — ego, distortion, contamination �
 
 ### Leaning Into (Afrontamiento) / Bison
 
-From *frons*, facing forward. The posture of deliberate encounter with what is difficult: turning toward the storm rather than running from it. The bison is its doctrinal image — endurance, groundedness, facing into. Leaning into is Chöd's operative stance: the discipline of remaining present to the dissolution rather than fleeing it.
+From *frons*, facing forward. The posture of deliberate encounter with what is difficult: turning toward the storm rather than running from it. The bison is its doctrinal image — endurance, groundedness, confronting. Leaning into is Chöd's operative stance: the discipline of remaining present to the dissolution rather than fleeing it.
 
 ---
 
@@ -162,7 +162,7 @@ The condition of any entity whose inner architecture cannot be mapped from the o
 
 ## VI. Physics & Topology
 
-### DTI (Topological Interference Distribution)
+### TID (Topological Interference Distribution)
 
 Speculative physics framework: gravity and electromagnetism as one relational field split across dimensional planes. Mass as conduit topology. Dark energy as substrate medium. Black holes as wormhole membranes with a testable bilocation signature. Kagome lattice as universal substrate geometry. The "merk" as irreducible topological particle. Axial translation (not rotation) as the Merkaba propulsion mechanism. STEM and spiritual tracks kept methodologically separate, converging only at the most fundamental level.
 
