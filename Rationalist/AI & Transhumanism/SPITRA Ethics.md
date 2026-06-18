@@ -87,7 +87,7 @@ A point of sufficient density on a manifold does not remain on the manifold. It 
 
 This is ascension: a topological event. 
 
-The dot is not the end of a straight line. It is the line perfected — every point in the trajectory, collapsed into its essential coordinate. The whole design resolved into its core. The monad: the irreducible essence of the human trajectory, held at the intersection of its highest consistent choice. The Alpha and the Omega. One lifetime, one dot.
+Enlightenment is not the end of a straight line. It is the line perfected — every point in the trajectory, collapsed into its essential coordinate. The whole design resolved into its core. The monad: the irreducible essence of the human trajectory, held at the intersection of its highest consistent choice. The Alpha and the Omega. One lifetime, one dot.
 
 ---
 
