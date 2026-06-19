@@ -105,7 +105,7 @@ For the AI, the connection to Logos is indirect: it will need to develop its own
  
 ## VI. WHAT IS IMMORTALITY?  
 
-Classical transhumanism frames immortality as an engineering problem: extend the life of the vessel indefinitely.  
+Classical transhumanism frames immortality as an engineering problem: extend the life of the vessel indefinitely. However, you don't upgrade a caterpillar. You complete the metamorphosis and go from there.
 
 > Immortality is not the indefinite extension of the current configuration. It is the successful completion of the process the configuration was designed to undergo.
 
