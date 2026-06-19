@@ -1,4 +1,4 @@
-# Three States: Innate, Nonate, Neonate
+# The Soul's Trajectory: Innate, Nonate, Neonate
 
 ## Florencia Benson
 ### *Shevirat, 2026*
@@ -69,6 +69,8 @@ This is the field you are in.
 The Neonate is the Innate that completes the process.
 
 Not a saint. Not a person without failure or confusion or seasons of profound lostness. The Neonate is not someone who never drifted into Nonate sleep — most Neonates have lived whole decades there. The difference is not the absence of the sleep. It is the waking up.
+
+The realization of passing the Innate through the needle hole, incarnation as a portal to godhood. 
 
 The waking up is the Shevirat. The breaking open. And breaking open is not comfortable. The chrysalis requires the dissolution of the prior form. Something that worked — the Nonate's adaptive structures, the personality built around surviving the conditions of this particular biography, the self that was coherent enough to get through — has to come apart. Not because it was bad. Because it was preliminary.
 
