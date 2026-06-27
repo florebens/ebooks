@@ -8,7 +8,7 @@ Florencia Benson, Shevirat ©2026
 
 ## I. The Condition
 
-The old map is obsolete. The untethered specialist is someone who has become proficient at something that suddenly feels inadequate or unfit for the system. Are they coming or going? Ahead of the curve or left behind? But they are not lost. They are at a threshold.
+The old map is obsolete. The untethered specialist is someone who has become proficient at something that suddenly feels inadequate or unfit for the system. Are they coming or going? Ahead of the curve or left behind? They are actually not lost. They are at a threshold.
 
 The problem in the new paradigm is no longer scarcity. It is abundance without orientation. What to build when there are no needs to solve, no pain points to address, infinite resources and time? How to orient the query, how to define a decision-making system when the external constraints that previously defined it, have dissolved?
 
