@@ -162,11 +162,13 @@ It is the mark of a Higher Civilization to celebrate excellence. Evil is sloppy.
 
 ## X. Ethical Empowerment
 
-The EP leads consistently from the good/coherence quadrant. Exercises power not as a moral performance or status flexing, but as structural discipline. A consistent orientation that is trained, maintained, and returned to when drift occurs. This is the most elevated form of empowerment because it refuses the shortcuts that old world power readily offers.
+Empowerment is a somewhat bloated term. Within our framework, empowerment can only be personal. In other words, one can only empower oneself. Power is taken, not given; best case scenario, it is *mined* — from the depths of the Shadow work. But an EP does enhance agency for others, as a byproduct of self-leadership. The EP's template becomes visible to all, *replicable* if one so chooses. 
 
-The EP does not lead by standing above others. They lead by demonstrating what is possible and creating conditions for others to reach it independently. Every intervention leaves the space more sovereign, more coherent, more crystalline than it found it. The measure of their success is not followers but leaders produced. New leaders, better leaders; balanced, well-rounded leaders.
+The EP acts consistently from the good/coherence quadrant (see **Embodied Ethics**). Exercises power not as a moral performance or status flexing, but as structural discipline. A consistent orientation that is trained, maintained, and returned to when drift occurs. This is the most elevated form of empowerment because it refuses the shortcuts that old world power readily offers.
 
-Ethical Empowerment is not charity. Not even activism. Not mentorship in the conventional sense. It is a structural commitment embedded in how the EP builds, decides, and deploys their capacity. The success condition of Higher Civilization engineering is equality as a passive, self-sufficient structure.
+The EP does not lead by standing above others. They lead silently, by demonstrating what is possible and creating conditions for others to reach it independently. Every intervention leaves the space more sovereign, more coherent, more crystalline than it found it. The measure of their success is not followers but leaders produced. New leaders, better leaders; balanced, well-rounded leaders.
+
+Ethical Empowerment is far from charity. It is not even activism, nor mentorship in the conventional sense. It is a structural commitment embedded in how the EP builds, decides, and deploys their capacity. The success condition of Higher Civilization engineering is equality as a passive, self-sufficient structure.
 
 **Maximum power. Maximum egalitarianism. Not a compromise — a unified principle. Everyone Is King.**
 
