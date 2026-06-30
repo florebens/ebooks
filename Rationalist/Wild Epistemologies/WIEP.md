@@ -15,11 +15,9 @@ We are reaching a threshold as a species. The simulation is caving. It is impera
 
 ## I. Introduction
 
-In the context of Terminal Capitalism and its subsequent cognitive crisis, clinging to normalcy is no more than a flagrant liability.
+In the context of the Great Transition between human eras and its subsequent cognitive crisis, clinging to normalcy is no more than a flagrant liability.
 
-We are witnessing the deliberate dismantling of material and symbolic structures alike. The destruction is strategic but the effect is chaotic, designed with precision to overwhelm the nervous system. The target of this operation is not the pocket nor the mind, per se, but rather the bond between the individual and the group — that is, maximum anomie.
-
-Anomie, in Durkheim's original formulation, is not simply disorder. It is the specific condition that arises when the normative frameworks that anchor individual behavior to collective life dissolve faster than new ones can form. When the shared map degrades, the cognitive resources that would be needed for nuanced navigation get rerouted into survival response.
+We are witnessing the dwindling of material and symbolic structures alike. Anomie, in Durkheim's original formulation, is not simply disorder. It is the specific condition that arises when the normative frameworks that anchor individual behavior to collective life dissolve faster than new ones can form. When the shared map degrades, the cognitive resources that would be needed for nuanced navigation get rerouted into survival response.
 
 Spirituality is, in fact, what remains when the social contract collapses and the monsters start lurking behind the stage. Upon this scenario, we are called to restore the Unseen within our systems of navigating the world, to reframe the humanities in order to accommodate the metaphysical substrate of our living experience. Can we domesticate our faith in time, or shall we be devoured by our telluric, pre-rational beliefs? As the crack widens, the abyss comes alive.
 
