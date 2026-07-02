@@ -1,6 +1,6 @@
 # Spitra Manifest
 
-## What is Human.
+**What is Human.**
 
 We cannot move forward in any meaningful way without answering this question. What exactly are we enhancing?
 
