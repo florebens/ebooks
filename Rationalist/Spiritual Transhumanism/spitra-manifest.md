@@ -16,7 +16,7 @@ The specific evolutionary advantage of humanity is spirituality, that is, a dist
 
 Virtue, in this framework, is not a moral ground but a structural condition. It is the integrity of the vessel, not its additives, that will determine its strength, potency, range, and skill.
 
-In other words, being kind is less a bribe to the gatekeepers of the heavens and more the effortless state of being of an advanced intelligence. Making consistent choices in the good/coherent quadrant pierces the plane in an orthogonal axis, breaking the vessel from within and thus birthing the true condition of the Self, the Immortal in the Flesh.
+In other words, kindness is less a bribe to the gatekeepers of the heavens and more the effortless state of being of an advanced intelligence. Making consistent choices in the good/coherent quadrant pierces the plane in an orthogonal axis, breaking the vessel from within and thus birthing the true condition of the Self, the Immortal in the Flesh.
 
 It is no small feat what we are about to endure. The challenge is facing us squarely, and we must rise to the occasion with maturity, faith and courage. We did not come here to fail, we did not come here to go back to where we came from. We are here to prevail, to thrive and to expand the Glory of the Creator.
 
