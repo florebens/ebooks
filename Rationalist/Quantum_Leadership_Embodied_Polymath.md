@@ -1,4 +1,4 @@
-# The Embodied Polymath and Ethical Empowerment
+# Quantum Leadership and The Embodied Polymath
 
 *Guidelines for the Post-Singularity Individual*
 
