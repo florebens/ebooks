@@ -6,9 +6,7 @@
 
 # Introduction 
 
-Effective Altruism (EA) has shown its limits. The OpenAI board crisis. AI alignment failures. A long pattern of AI governance failure that keeps repeating — and an EA framework that was supposed to prevent exactly this. 
-
-If you're experiencing AI disillusionment — not as a trend, but as a deep rooted discomfort — this ebook is for you.
+Effective Altruism (EA) as a framework has shown its limits: a long pattern of AI governance failure that keeps repeating. If you're experiencing AI disillusionment, a deep rooted discomfort — this book is probably for you. 
 
 Why do ethical decision making keeps failing at the leadership level? 
 
@@ -31,7 +29,7 @@ Ethical competence is a skill. It can be trained. We used to have a name for tha
 
 K(H,V). Karma is a function of two variables. At every moment, in every decision, the function is being evaluated. The result is inscribed in the body.
 
-The body is not a metaphor here. It is the most immediate and least deniable instrument available to the analyst. It holds the running account. It cannot externalize the ledger onto hard drives, institutions, or captured networks. It carries what it has chosen, accumulated across every decision point in a localized biography. The record is in the flesh. 
+The body is a formidable, highly sensitive, sophisticated navigation instrument. It is the hardware where the karmic data is inscribed. It holds the running account. It cannot externalize the ledger onto hard drives, institutions, or captured networks. It carries what it has chosen, accumulated across every decision point in a localized biography. The record is in the flesh. 
 
 This is what true skin in the game entails. Somatic coherence is karmic data, accumulated before instrumentation existed to formalize it. The instrument is older than any framework built to describe it.
 
@@ -39,13 +37,15 @@ Think of the body as a pendulum.
 
 Its rest position is coherence. Its default setting is Light (which is why darkness exists as a field, as per the Law of Polarity). The calibrated body is always attempting to return to center — not because center is virtuous in the moral sense, but because center is the attractor, the rest state the human machine was built around. Deviation requires force. Sustained, costly, infrastructure-dependent force. The question is always what is interfering with the return.
 
+Ethical coherence is integrity. Integrity rennders a non-fragile system, a robust container that will amplify the signal with maximum power. 
+
 ## The Ontological Cross
 
 The Ontological Cross or ethical quadrant formalizes what the body already knows.
 
-The horizontal axis is the independent variable: Good and Evil. Not time. Not circumstance. Not social position. The moral coordinate — what the agent is choosing, at the level of orientation and will. 
+The horizontal axis (H) is the independent variable: Good and Evil. Not time. Not circumstance. Not social position. The moral coordinate — what the agent is choosing, at the level of orientation and will. 
 
-The vertical axis is the dependent variable: Coherence and Entropy, or in cosmological register, Light and Mass. 
+The vertical axis (V) is the dependent variable: Coherence and Entropy, or in cosmological register, Light and Mass. 
 
 Together they define the karmic field.
 
@@ -63,7 +63,7 @@ Optimization, coherence, subtilization — these are the rest states, not the ac
 
 Dark personality structures require elaborate external infrastructure to hold their position: captured institutions, Ponzi dynamics, continuous extraction from surrounding nodes, preemptive discrediting of coherent agents. Evil is not powerful. Evil is costly. The appearance of power is the Ponzi. The infrastructure is the tell.
 
-A strategically evil agent cannot be coherent. The presentation can hold. The metrics can confirm. The overstructure can reward. But the actual V score is always entropic, because the mechanism generating the presentation — extraction, displacement, borrowed structural integrity — is itself entropic. The coherence is rented. It does not compound. It accumulates debt at karmic scale.
+A strategically evil agent cannot be coherent. The presentation can hold. The metrics can confirm. The overstructure can reward. But the actual (V) score is always entropic, because the mechanism generating the presentation — extraction, displacement, borrowed structural integrity — is itself entropic. The coherence is rented. It does not compound. It accumulates debt at karmic scale.
 
 A person can be good and devitalized — depleted, overwhelmed, temporarily defeated — and remain entirely outside the entropy basin. A person can be good and in victimhood, structurally trapped by systems more powerful than their individual agency, and the vertical axis still reads coherence. Victimhood is not entropy. Depletion is not entropy. The axis measures the orientation of the will, the direction of the vector — not the current conditions of the field.
 
