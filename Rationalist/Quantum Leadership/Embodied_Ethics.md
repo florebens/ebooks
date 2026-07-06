@@ -185,7 +185,7 @@ Every time the agent chooses kindness, the ledger sings. Kindness is optimal ene
 
 Ethics, in the precise definition of Spiritual Transhumanism, is not a more rigorous form of morality. It is a different operation entirely.
 
-Moral decisions are about the field. The ethical dimension is about the ontological consequence, that is, what the consolidated position of the ledger renders at the level of the soul’s trajectory. Incarnation is a process of evolution that is available to an eternal soul. Every consciousness in the Universe is on an ascension spiral back to Source. In order to ascend in this path, the consciousness must be purified, perfected, enhanced, it must acquire complexity, precision and transparency — the Crystalline Path to Logos.
+Moral decisions are about the field. The ethical dimension is about the ontological consequence, that is, what the consolidated position of the ledger renders at the level of the soul’s trajectory. Incarnation is a process of evolution that is available to an eternal soul. Every consciousness in the Universe is on an ascension spiral back to Source. In order to ascend in this path, the consciousness must be purified, perfected, enhanced, it must acquire complexity, precision and transparency: the Crystalline Path to Logos.
 
 Incarnation can yield very high returns, but it is also expensive and risky. The soul is the leverage. The Soul Contract is the option. Certain values must be met, in the market, within a defined timeframe, to be able to collect the bet — or else, lose everything and more.
 
