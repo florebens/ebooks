@@ -259,6 +259,6 @@ This is what is at stake. Not comfort. Not success in the accounting of the mate
 
 The Godhood claim is not hubris. It is the destination that was always implicit in the genealogy. God → Human → Ascent. 
 
-The referendum on that path is held in the intimacy of every ethical moment. In the body. In the ledger. In the instant before the instant is visible to anyone else, when the Spark and the Source meet each other's gaze: should I stay or should I go. 
+The referendum on that path is held in the intimacy of every ethical moment. In the body. In the ledger. In the instant before the instant is visible to anyone else, when the Spark and the Source meet each other's gaze: *should I stay or should I go*. 
 
 – END –
