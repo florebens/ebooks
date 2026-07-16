@@ -14,7 +14,7 @@ GOATS have the ability to reprogram themselves to accomodate their goal.
 Self improvement is a feature, not a bug.
 
 ## 4. Make the necessary adjustments 
-GOATS make the necessary changes with no hesitation. 
+GOATS make the necessary changes with no hesitation or delay. Walk the talk.
 There is no such thing as second guessing.
 Firm and precise is the hand!
 
