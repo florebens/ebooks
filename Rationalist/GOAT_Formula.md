@@ -2,12 +2,12 @@
 
 ## 1. Have the AUDACITY
 To become the Leader of your own life. 
-Lead yourself into a life of your design. 
+Lead yourself into a life of your design.
+Call the shots, hold the reins, claim your sovereignty.
 
 ## 2. Collapse the Noise 
 Hone in your discernment abilities to shut down the voices, spaces and people that do not support your highest good.
 Target your priority and let all else fall away.
-Do not waste time or energy on the nodes that do not invest in you.
 
 ## 3. Reprogramming
 GOATS have the ability to reprogram themselves to accomodate their goal.
