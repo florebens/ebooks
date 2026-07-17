@@ -1,4 +1,3 @@
-Shevirat presents:
 # The Formula to Become a GOAT:
 
 ## 1. Have the AUDACITY
