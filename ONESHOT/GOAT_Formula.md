@@ -6,7 +6,7 @@ Lead yourself into a life of your design.
 Call the shots, hold the reins, claim your sovereignty.
 
 ## 2. Collapse the Noise 
-Hone in your discernment abilities to shut down the voices, spaces and people that do not support your highest good.
+Hone in your discernment abilities to shut down the voices, spaces and faces that do not support your highest good.
 Target your priority and let all else fall away.
 
 ## 3. Reprogramming
