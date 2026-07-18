@@ -1,4 +1,4 @@
-# The Formula to Become a GOAT:
+# The Formula to Becoming a GOAT:
 
 ## 1. Have the AUDACITY
 To become the Leader of your own life. 
