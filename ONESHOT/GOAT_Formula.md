@@ -3,7 +3,7 @@
 ## 1. Have the AUDACITY
 To become the Leader of your own life. 
 Most people just follow along and color inside the lines. Not the GOATs.
-Lead yourself into a life of your own design.
+Lead yourself into a life of your design.
 Call the shots, hold the reins, claim your sovereignty.
 
 ## 2. Collapse the Noise 
