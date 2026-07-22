@@ -19,7 +19,7 @@ Clinging to normalcy in the current times is nothing short of a flagrant liabili
 
 We are witnessing the dwindling of material and symbolic structures alike. Anomie, in Durkheim's original formulation, is the specific condition that arises when the normative frameworks that anchor individual behavior to collective life dissolve faster than new ones can form. When the shared map degrades, the cognitive resources that would be needed for nuanced navigation get rerouted into survival response.
 
-Spirituality is, in fact, what remains when the social contract collapses and the monsters start lurking behind the stage. Upon this scenario, we are called to restore the Unseen within our systems of navigating the world, to reframe the humanities in order to accommodate the metaphysical substrate of our living experience. Can we domesticate our faith in time, or shall we be devoured by our telluric, pre-rational beliefs?
+Spirituality is, in fact, what remains when the social contract collapses and the monsters start lurking behind the stage. Upon this scenario, we are called to restore the Unseen within our systems of navigating the world, to reframe the humanities in order to accommodate the metaphysical substrate of our living experience. The issue is time-sensitive: can we domesticate our faith in time, or shall we be devoured by our telluric, pre-rational beliefs?
 
 Indeed, how do we uphold sanity in a cognitive crisis? How do we endure, and perhaps even thrive, in material and symbolic chaos, in extreme ontological exposure?
 
