@@ -25,9 +25,9 @@ Spirituality is, in fact, what remains when the social contract collapses and th
 
 All fundamental explanations of ourselves and of the world fall within the psychotic grounds, the primary roughs, the outskirts of the safety of the simulation. Even the science.
 
-Are your beliefs a bundle of preconscious threads, or rather a digested, highly organized value-set? How aware are you of the backrooms of your psyche? If triggered, is your personal flavor of psychosis going to send you on a killing spree, or is will it elevate you, make you a better person? 
+Are your beliefs a bundle of preconscious threads, or rather a digested, highly organized value-set? How aware are you of the backrooms of your psyche? If triggered, is your personal flavor of psychosis going to send you on a killing spree, or will it elevate you, make you a better person? 
 
-'Better' usually means outcast, contrarian, disruptive, the black sheep. Not a single protagonist of our mainstream religions was a dutiful civilian, not Moses, not Jesus, not Mahoma, not the Buddha.
+'Better' usually means outcast, contrarian, disruptive, the black sheep. Not a single protagonist of our mainstream religions was a dutiful civilian: not Moses, not Jesus, not Mahoma, not the Buddha.
 
 How do we uphold sanity in a cognitive crisis? How do we endure, and perhaps even thrive, in material and symbolic chaos, in extreme ontological exposure?
 
