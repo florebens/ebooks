@@ -21,6 +21,8 @@ We are witnessing the dwindling of material and symbolic structures alike. Anomi
 
 Spirituality is, in fact, what remains when the social contract collapses and the monsters start lurking behind the stage. Upon this scenario, we are called to restore the Unseen within our systems of navigating the world, to reframe the humanities in order to accommodate the metaphysical substrate of our living experience. Can we domesticate our faith in time, or shall we be devoured by our telluric, pre-rational beliefs?
 
+Indeed, how do we uphold sanity in a cognitive crisis? How do we endure, and perhaps even thrive, in material and symbolic chaos, in extreme ontological exposure?
+
 **Wild Epistemologies** asks not whether a belief system is true, but rather if it's *productive*. Every cosmology contains a streak of reality-bending, the magical, the fantastic, the irrational. 
 
 All fundamental explanations of ourselves and of the world fall within the psychotic grounds, the primary roughs, the outskirts of the safety of the simulation. Even the science.
@@ -28,8 +30,6 @@ All fundamental explanations of ourselves and of the world fall within the psych
 Are your beliefs a bundle of preconscious threads, or rather a digested, highly organized value-set? How aware are you of the backrooms of your psyche? If triggered, is your personal flavor of psychosis going to send you on a killing spree, or will it elevate you, make you a better person? 
 
 'Better' usually means outcast, contrarian, disruptive, the black sheep. Not a single protagonist of our mainstream religions was a dutiful civilian: not Moses, not Jesus, not Mahoma, not the Buddha.
-
-How do we uphold sanity in a cognitive crisis? How do we endure, and perhaps even thrive, in material and symbolic chaos, in extreme ontological exposure?
 
 This Great Transition is, if nothing else, an invitation to evolve. In order to meet this challenge, we need an elevated meaning-making framework, sophisticated and rich, robust, flexible, coherent. Such a symbolic system is the one asset that matters, the structure that still stands when everything else is collapsing.
 
