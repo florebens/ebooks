@@ -78,6 +78,14 @@ The post-shevirat configuration. Same substrate, reorganized at a level of coher
 
 The carbon-based body as it currently runs: a formidable machine, almost entirely switched off, running notoriously under specification. Most of its energy flow sustains secondary circuits — noise from a poorly calibrated system — rather than primary ones, producing the entropy that degenerates into illness and premature death. This is not the default state of an optimized system; it's a system running on a passive energy source and a corrupted configuration. An activated Human Machine runs only primary circuits — no excess entropy, no decoherence, no signal distortion — and is the precondition for the transition into the Crystalline Body / Human 3.0. The Human Machine names the *engine as currently found*; the Crystalline Body names what it becomes once switched on and run through Shevirat.
 
+### Embodied Polymath
+
+Cross-domain fluency — physics, geopolitics, macroeconomics, esoteric traditions — grounded in lived experience rather than siloed credentialing. The ceiling of what's reachable under the occlusive device: the fullest coherence available to a system still running pre-transformation, one register short of the Crystalline Body itself. Appetite-driven curiosity (Self) feeding genuinely deep processing (consciousness) across domains institutions keep separate — synthesis validated by having to deploy in a body navigating a real environment, not in abstraction.
+
+### Diamantine Butterfly
+
+The symbol of Shevirat's completion — the moment carbon becomes diamond made visible.
+
 ### Treedom
 
 The state a seed has no concept of. The actualized form already encoded in the current configuration but inaccessible from within it. Marks the limits of self-knowledge from inside a given ontological stage.
@@ -186,6 +194,10 @@ A lateral, present-moment mechanism for navigation rather than progression. Here
 
 A performance claim, not a metaphysical one: the high-order metacognitive capacity of an activated human machine running at specification. One of the markers — alongside perfect health and longevity — of a system operating without the entropy and noise of the default degraded configuration. Quantum here names a *mode of cognition* (non-linear, field-coherent, retrocausal-compatible) rather than a literal appeal to quantum mechanics, though DTI suggests the two registers may converge at the most fundamental level.
 
+### Quantum Leadership
+
+Effortless consistency in the coherence quadrant: an infinite capacity to hit maximum agency and generosity at scale without losing form or momentum. Responsibility for an ecosystem of souls — nothing beyond scope, nothing trivial. Radical accountability meets ultimate capacity: not command but infrastructure for others to continually and consistently thrive. Everyone is king.
+
 ---
 
 ## VII. Epistemology
@@ -197,10 +209,6 @@ Not a response to a broken information environment, but a positive account of wh
 ### Pasture OSINT
 
 A situational perceptual mode, activated when normal information channels are compromised, captured, or otherwise unreliable. Floating attention, pattern recognition, consequences as verification — deployed defensively, as adaptive intelligence for navigating a hostile or opaque environment. Survival-grade epistemology. Not a worldview but a response: what cognition does when the terrain can't be trusted.
-
-### Embodied Polymath
-
-Cross-domain fluency — physics, geopolitics, macroeconomics, esoteric traditions — grounded in lived experience rather than siloed credentialing or sheltered ambient. The polymath function operates in WIEP-mode: appetite-driven curiosity (Self) feeding genuinely deep processing (consciousness) across domains that institutions keep separate. The embodiment is what keeps the synthesis valid — it has to deploy consistently in a body navigating a real environment, not just in abstraction or an unrepresentative sample.
 
 ---
 
