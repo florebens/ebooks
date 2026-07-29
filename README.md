@@ -10,7 +10,7 @@ A growing open-source library of transmissions, frameworks, and field manuals fo
 - 🤍 The **[Rationalist](https://github.com/florebens/ebooks/tree/b675be2e065be2c339488f274f492677dca8a3f8/Rationalist)** - *the inquisitive and rigorous who will not settle for half-baked answers*
 - ❤️ The **[Seeker](https://github.com/florebens/ebooks/tree/b675be2e065be2c339488f274f492677dca8a3f8/Seeker)** - *the one who has peeked through the Veil and now can't unsee it*
 
-- ⚡ The [ONESHOT](https://github.com/florebens/ebooks/tree/464e616c3203c5ee24c319a57018af33806cbfd8/ONESHOT) - *a PLUS folder for potent, condensed Activations*
+- ⚡ The [eots](https://github.com/florebens/ebooks/tree/464e616c3203c5ee24c319a57018af33806cbfd8/ONESHOT) - *the transcribed Transmissions on Video Activations*
 
 ## License
 
