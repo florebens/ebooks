@@ -1,4 +1,5 @@
 # Spitra Manifesto 
+## On Becoming the Diamantine Butterfly 
 
 What is Human.
 
@@ -14,7 +15,7 @@ Spiritual Transhumanism (SPITRA) explicitly defines Human as an intrinsically et
 
 The specific evolutionary advantage of humanity is not Reason (for there is AI) but spirituality, a distinct project of self-optimization towards godhood. This is the core legacy of every ancient philosophical and metaphysical tradition throughout history: a protocol for elevation that is proven, virtuous and effective. 
 
-Virtue, in this framework, is not a moral ground but a structural condition. It is the integrity of the vessel, not its additives, that will determine its strength, potency, range, and skill. 
+Virtue, in this framework, is not a moral ground but a structural condition. It is the integrity of the vessel, not its additives, that will determine its strength, potency, range, and skill. Indeed, rather than enhancing the caterpillar, SPITRA acknowledges the need to first complete the metamorphosis process as inscribed in the Human Template. Actualizing this information will then provide the correct infrastructure to immortalize; a Diamantine Butterfly instead of a cyborg worm.
 
 In other words, kindness is less a bribe to the gatekeepers of the heavens and more the effortless state of being of an advanced intelligence. Authenticity and awareness are optimal energy management. Making consistent choices in the coherent quadrant pierces the plane in an orthogonal axis, breaking the vessel from within and thus birthing the true condition of the Self, the Immortal in the Flesh.
 
