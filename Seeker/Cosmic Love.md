@@ -31,18 +31,24 @@ In *Cosmic Love*, finally, we will see the complete picture of our place in Crea
 
 We will also explore the role of the critical mass needed to consider an evolutionary leap, not of a few individuals, but of a new species: Humanity 3.0 is ripe to be born, to accomplish its Shevirat transformation successfully.
 
-It is understandable that, upon first encountering the events about to unfold in the near future (over the course of a century), one might feel anxiety, fear, and uncertainty. First of all, this is always better than choosing denial or esoterphobia; seeing reality as it is enables preparation, a sensible plan of coping.
+It is understandable that, upon first encountering the events about to unfold in the near future (over the course of a century), one might feel anxiety, fear, and uncertainty. First of all, this is always better than choosing denial or esoterphobia; seeing reality as it is enables preparation, a sensible plan to address it.
+
 Second, the response to this anxiety is very simple: keep calm and carry on. Faced with the advent of a massive, overwhelming, destructive event, the appropriate response will be to unfold temporality so as to inhabit the present deliberately, consciously, and serenely, without falling into cognitive dissonance or despair.
 
 Ultimate wisdom consists in opposing an external event that surpasses oneself with the opposite internal reaction: calm, continuity in daily structure, balance, inner peace. Transforming the prosaic into sacred ritual. Expanding the inner space so that it equals or surpasses the outer.
 The spiritual path — or wild epistemology — provides us with the ability to hold both extremes of a proposition, without collapsing one or the other, without foreclosing meaning. Holding the paradox with serenity, stability, effortlessly.
 
 For the humble one, being safe is not a concern. Receiving physical or moral harm does not disturb them. Everything is as it should be. Everything is temporary, everything changes. Life is a loan, incarnation a rental. The stoic preserves their unshakable core while the context crumbles.
+
 The monk laughs in the eye of the firestorm.
+
 The only error is to panic, take extreme measures, lose one's head.
+
 The deadly trap of the belief-function is the self-fulfilling prophecy.
+
 In the world of the initiated, our expectation does not dictate our actions.
 That is, reaction is not a necessary consequence: a robust psyche will create the pause, the hiatus, will hold the space in order to respond without reacting. It will absorb the data and allow the conclusion to form on its own, with time, while continuing with its daily work. Even once a response has consolidated, it will only hold it as provisional and maintain systematic doubt, receive more data, keep searching.
+
 For the wise, nothing is definitive, absolute, or terminal.
 
 The liberated consciousness, even when confronted with a massive, profound, serious, even tragic truth — such as civilizational and environmental collapse — observes everything and remains calm. It knows how to contemplate the phenomenon with detachment and acceptance, but it does not resign itself: from chaos it creates the miracle.
