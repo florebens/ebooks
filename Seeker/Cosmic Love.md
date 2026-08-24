@@ -1,5 +1,5 @@
 # COSMIC LOVE
-### *Who are we, where do we come from and where are we going*
+### *Incarnation and Ascension, a Crossroad*
 
 ### **By Florencia Benson**
 ### *2026*
