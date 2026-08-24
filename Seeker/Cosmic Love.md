@@ -125,14 +125,14 @@ The vertical axis measures intellectual sophistication, the solid and coherent u
 
 Who is watching? Everyone, naturally. The audience is the rest of the cosmic consciousnesses, who stroll through the various worlds appreciating the exhibitions. Earth and other material worlds also serve as terrain for cosmic tournaments of the most advanced consciousnesses in the cosmos — the most archaic, those who have seen everything. They compete by incarnating in the most complicated trajectories, at the maximum difficulty level of the game. More than one Colossus has fallen! Ah, what a spectacle.
 
-Thus, the quality of the spirit is measured according to the consolidated position of incarnated decisions, locating its node in the corresponding quadrant of the Cross of Materiality.
+Thus, the quality of the spirit is measured according to the consolidated position of incarnated decisions, locating its node in the corresponding quadrant of the Ontological Cross.
+
 To briefly define the axis of Immortality, or good-evil, we could summarize it as the Law of Consent or the principle of non-interference, do no harm nor accept harm (the proverbial *do no harm, take no shit*). Compassion and Severity are the columns that sustain the system; placing all weight on one or the other is a sin. One must know how to modulate, practice discernment, execute with mastery, both one and the other.
 
 In other words, what is primordial is to maintain the integrity, the coherence, of the energetic field — the pure clarity of the node's signal — in the face of different situations, experiences, and bonds. Let us remember that above is purity, coherence, stable optimization; below is entropy, chaotic proliferation of matter. Tree of Life or Sefirot, Tree of Death or Qliphoth, which in reality duplicate to form a Tetramer (more on this, and the composition of the Cosmos, in *The Eye of God*).
 
 Turning the other cheek (which is actually an act of open defiance, inviting the aggressor to repeat their deliberate act while acting as a mirror to invite change, as great Masters tend to do) is not always the adequate, correct, or convenient response. The Enlightened defends their sacred light with all their weapons; their defenses are strong, their sword does not waver before the murky hand that extends to contaminate or distort their field. That too is Holiness. A messenger of Heaven, a prophet, a bearer of divine light has no time or interest in wasting their sacred chalice. They know their rank, respect the spiritual hierarchy, and enforce it.
 
----
 
 # Qliphotic Forces
 
