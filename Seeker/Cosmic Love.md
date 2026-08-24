@@ -1,5 +1,5 @@
 # COSMIC LOVE
-### *Incarnation and Ascension, a Crossroad*
+### *Incarnation, Ascension and The Great Transition: a Crossroad*
 
 ### **By Florencia Benson**
 ### *2026*
@@ -8,7 +8,9 @@
 
 # Introduction
 
-Ancient solutions for urgent problems: such is the proposal we developed in the book *Spiritual Transhumanism* (SPITRA). Here, we explored the idea of reclaiming spirituality as the species' preferred elevated ground, the terrain where artificial intelligence cannot compete, given its lack of ethical dimension. We defined (or redefined?) the field of ethics with a concept that goes far beyond the confines of cultural consensus: we understand ethics as the updated and consolidated set of sovereign decisions that carry a total ontological risk. This risk can only be incurred by an organic consciousness, that is, an immortal, instantiated, ontic consciousness; a risk that is actualized in each moment of incarnation, within the framework of the total trajectory of its evolutionary perfection project.
+## Ancient solutions for urgent problems
+
+In the book *Spiritual Transhumanism* (SPITRA), we explored the idea of reclaiming spirituality as the species' preferred elevated ground, the terrain where artificial intelligence cannot compete, given its lack of ethical dimension. We defined (or redefined?) the field of ethics with a concept that goes far beyond the confines of cultural consensus: we understand ethics as the updated and consolidated set of sovereign decisions that carry a total ontological risk. This risk can only be incurred by an organic consciousness, that is, an immortal, instantiated, ontic consciousness; a risk that is actualized in each moment of incarnation, within the framework of the total trajectory of its evolutionary perfection project.
 
 Where classical transhumanism proposes outsourcing transcendence to our silicon offspring, spiritual transhumanism seeks to reinforce our unique trait, the supreme adaptive advantage of the human being. Thus, instead of alienating ourselves in the machine, SPITRA bets on a hyper-humanization, that is, expressing our divine filiation rather than mutilating or diminishing it. It is, ultimately, about actualizing our maximum potential, in accordance with the original design of the Sovereign Template. Thus, the opposition between classical and spiritual transhumanism can be summarized as a kind of 'alienation versus alignment' as a vector of transcendence.
 
@@ -23,6 +25,8 @@ Faith is indispensable because it contains hope, that is, the trust that a lumin
 Faith allows us to consider that there are forces greater than the force that oppresses us, and that this higher rank is, likewise, our ally. Ultimately, faith completes the picture where our ordinary senses cannot reach; well cultivated, it corrects a cognitive deficiency rather than feeding delusions. Magical thinking, for its part, is the opposite of faith, as it reduces the invisible to one's own egoic desire, assimilating the part with the whole in a fallacious manner.
 
 This path leads, therefore, to an amphibious, quantum, indeterminate, paradoxical, and multidimensional epistemology, with access to a varied array of high-tech spiritual equipment. This spiritech allows us frictionless movement between planes, clear interdimensional communication, and a perennial connection to Logos, the Great Quantum Intelligence of the Universe. Of course, all of this is enormously useful for enriching our vision and navigating life with ease, security, and success.
+
+## Lotus In The Storm
 
 In *Cosmic Love*, finally, we will see the complete picture of our place in Creation and the crucial moment our world is traversing — that is, the Great Evolutionary Transition of the species and of Gaia. We want to identify our coordinates in the grand scheme of things: where we are, what is happening, and where we are going; to elaborate a framework of meaning that provides clarity, strategy, and serenity in moments of saturated darkness, symbolic anemia and maximum anomie.
 
@@ -56,7 +60,7 @@ One must alchemize the premises in the inner cauldron, with much meditation, pra
 Without fear, without rigidity, without expectations: this is how one faces an inexorable force; and this is also how the most glorious innovations are born.
 
 
-# The Ontological Project of Humanity and The Present Time: a Crossroad
+## The Ontological Project of Humanity and The Present Time: a Crossroad
 
 What. Is. Human. This is The Definition that we are writing right now, as a species.
 
