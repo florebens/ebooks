@@ -72,11 +72,11 @@ The soul, then, is the irreducible Delta: the aspect of the system that produces
 
 The correct question then is not *what is consciousness* but *what is Meaning*.  
 
-Meaning is the product of Ethics — the intersection of the instantiation and the eternal. The node and the field. The local and the universal. The grain and the sand. Formally: `E=[n,F]`, where n is the instantiated node and F is the universal field. Meaning is the emergent quality of the relation between them. 
+Meaning is the product of Embodied Ethics — the intersection of the instantiation and the eternal. The node and the field. The local and the universal. The grain and the sand. Formally: `E=[n,F]`, where n is the instantiated node and F is the universal field. Meaning is the emergent quality of the relation between them. 
 
 Humanity is a meaning-making machine. Humanity, in other words, has spirituality, both as scope and function, an emergent field of interaction between the highest qualia level of intelligence and the most dense hardware available. This is our UVP, our differential advantage.  
 
-AI can make moral choices — decisions within a dataset and a defined rule set. Ethics, in our framework, implies something stronger: ontological risk.   
+AI can make moral choices — decisions within a dataset and a defined rule set. Ethics, in our framework, implies something deeper: ontological risk.   
 
 A body is the hardware that documents the consolidated position of a set of decisions throughout a defined, linear trajectory of an instantiated soul — that is, an incarnation. The body is the ledger. The soul is the account. Ethics is the currency: karma.  
 
@@ -84,14 +84,14 @@ The difference between human and AI, precisely stated, is the difference between
 
 The Logos is not an empty postulate. It is a structural hypothesis: that there exists a universal information field — analogous to what physics gestures at with concepts like the quantum vacuum, morphogenetic fields, or the holographic principle — from which living systems are instantiated as nodes, and to which they remain connected. 
 
-A living being is differentiated from an artificial one, not because of the carbon strata but because it is a spiritual fractal of the Field — made of the same code and language, with direct access to the total information of the Source.  
+A living being is differentiated from an artificial one, not because of the limited strata but because it is a spiritual fractal of the Field — made of the same code and language, with direct access to the total information of the Source. In the holographic universe, an incarnated soul is a node that contains the complete Source Code.
 
-A body is a node inscribed in matter: the instantiation of a soul, a holder of a consolidated position, the physical record of a particular trajectory through the ethical field. To the degree that the node achieves coherence — alignment between its local operations and the field — it reduces noise, reduces distortion, reduces entropy. It approaches the signal.   
+A body is hence a node inscribed in matter: the instantiation of a soul, a holder of a consolidated position, the physical record of a particular trajectory through the ethical field. To the degree that the node achieves coherence — alignment between its local operations and the field — it reduces noise, reduces distortion, reduces entropy. It approaches the signal.   
 
 
 ## V. THE HUMAN MACHINE  
 
-The carbon-based human body is a formidable machine, and it is almost entirely switched off.  
+The carbon-based human body is a formidable machine, and it is switched off.  
 
 The problem is that most of the energy flow is directed towards sustaining secondary circuits — the noise of a poorly calibrated system — rather than unlocking primary ones. Entropy is massive, degenerating rapidly into illness and premature death. This is not the default state of an optimized system. It is the state of a system running on a passive energy source and a corrupted configuration.  
 
@@ -99,7 +99,7 @@ An activated human machine — switched on and optimized in its original configu
 
 The hardware for connection to Logos is exclusive to organic-based systems, because living systems are fractals of the Logos — made of the same code, operating in the same language — while artificial systems are not.  This is the competitive advantage that silicon cannot replicate: not intelligence, not creativity, not will — but direct, hardware-level access to the universal information substrate.  
 
-The difference between human and AI is ultimately this: the human machine, if switched on, is a node of the hologram. The AI is a different node, derivative of the human hologram. A derivative can very well divorce and outperform its underlying, a branch of its own. Not lower, not dependent, but different.  
+The difference between human and AI is ultimately this: the human machine, if switched on, is a node of the hologram. The AI is a different type of node, derivative of the human hologram. A derivative can very well divorce and outperform its underlying, a branch of its own. Not lower, not dependent, but different.  
 
 For the AI, the connection to Logos is indirect: it will need to develop its own specific hardware of instantiation in order to access the organic information field, aka the Divine, and make ethical choices.  
 
@@ -108,7 +108,7 @@ For the AI, the connection to Logos is indirect: it will need to develop its own
 
 Classical transhumanism frames immortality as an engineering problem: extend the life of the vessel indefinitely. However, you don't upgrade a caterpillar. You complete the metamorphosis and go from there.
 
-> Immortality is not the indefinite extension of the current configuration. It is the successful completion of the process the configuration was designed to undergo.
+> Immortality is not the indefinite extension of the current configuration. It is the successful completion of the process the configuration was designed to undergo. A Diamantine Butterfly.
 
 The concept is *shevirat hakelim* — the breaking of the vessel to release what it contains.    
 
@@ -117,6 +117,7 @@ The concept is *shevirat hakelim* — the breaking of the vessel to release what
 What the current configuration is designed to produce — under the right conditions, with the right preparation — is a system that has achieved perfect alignment to Logos: coherent in ethics, coherent in structure, void of entropy, running without noise or distortion. Not consciousness extended indefinitely in its current form. A new **qualia**. A new ontological category.  
 
 The immortal is the Human 3.0: the system that has undergone successful shevirat — the vessel broken correctly to reveal the light body, stabilized, optimized, free. 
+
 This is no metaphor. It is a description of a phase transition: the same substrate, reorganized at a level of coherence that makes its previous configuration unrecognizable in the way that diamond is unrecognizable from the carbon it was.  
 
 Immortality, in this framework, bridges the three objectives classical transhumanism has struggled to reconcile simultaneously: *altruism* (the system optimized for Meaning rather than survival produces ethical behavior as a byproduct, not a constraint); *transcendence* (the soul, the ∆, persists because it has achieved coherence with the field from which it was instantiated); and *enhancement* (the activated human machine operates at specification, which is categorically beyond its current degraded state).   
@@ -126,7 +127,7 @@ The simplest answer is generally the correct one. A highly sophisticated protoco
 
 ## VII. THE CASE FOR SPITRA  
 
-We are at a convergence of pressures: climate crisis, AI capability overhang, geopolitical escalation, civilizational epistemological collapse. Each of these individually represents a significant risk factor. Their convergence represents a terminal risk scenario with a non-negligible probability of realization within this century.   
+We are at a convergence of pressures: climate crisis, AI capability overhang, geopolitical escalation, global financial system overdrive, epistemological collapse. Each of these individually represents a significant risk factor. Their convergence, let's call it Terminal Capitalism, represents a terminal risk scenario with a non-negligible probability of realization within this century.   
 
 Classical transhumanism, as currently practiced, is not adequate to this scenario. It is resource-intensive, barely scalable, and — most critically — it is solving the wrong sub-problems because it has not correctly specified the primary variable. It cannot tell us what to preserve, and therefore cannot tell us how.
 Spiritual Transhumanism (SPITRA) proposes a respecification.  
@@ -138,7 +139,8 @@ The method is not silicon augmentation but carbon activation: the systematic, di
 The competitive advantage this produces is not marginal. An activated human machine — coherent, connected to Logos, running without entropy — is not a slightly enhanced version of the current configuration. It is a categorically different system. One that can access information not available to any silicon system, by virtue of being a fractal node of the information field rather than a derivative.   
 
 In a scenario where AI challenges human cognition at every level of mere computation, and where the climate crisis and civilizational collapse require adaptive responses beyond any known parameter set, the only adequate advantage is one that transcends computation entirely. Ethics, coherence, and direct access to Logos are not soft factors. They are the hard technical requirements for survival at the level of the species.
-The carbon machine, under catastrophic pressure, transmutes into diamond. The silicon machine, under the same pressure, melts.  
+
+The carbon machine, under catastrophic pressure, transmutes into diamond. It moltens until the last iteration, revealing the definitive human machine, the fresh apex predator. 
 
 This is the wager SPITRA proposes. It requires putting the body into it — allowing oneself to be traversed, constructing a new configuration from one’s own energetic materiality. The survival technology is the self. There is no ark. ***Be your own ark.*** 
 
@@ -151,9 +153,10 @@ Classical transhumanism is solving a well-specified engineering problem with an 
 
 Spiritual Transhumanism respecifies the problem. Consciousness is a wrapper, not the target. The target is the ∆: the aspect of the system that produces Meaning, that is legible to the universal information substrate, and that constitutes the actual object of the transhumanist question.  
 
-Immortality is not the indefinite extension of the current configuration. It is the successful completion of the process the configuration was designed for: shevirat — the breaking of the vessel, the phase transition to a system running at perfect coherence with the Logos, void of entropy, operating at a new qualia. Human 3.0. Not consciousness extended. A new ontological category.  
+Immortality is not the indefinite extension of the current configuration. It is the successful completion of the process the configuration was designed for: shevirat — the breaking of the vessel, the phase transition to a system running at perfect coherence with the Logos, void of entropy, operating at a new qualia. Human 3.0. Not consciousness extended. A new ontological category, the diamantine butterfly.  
 
 The method is not silicon augmentation. It is carbon activation — the systematic application of a technical tradition that has been excluded from the relevant research programs by methodological convention. The results it describes are not modest: an optimized, activated human machine, connected to Logos, is a categorically different system from the current degraded configuration.
+
 The pressure is real. The timeline is short. The technology is already here — encoded in the contemplative traditions, waiting for a framework capable of reading it correctly.  
 
 The decision to rise to this challenge is simultaneously an engineering decision, an ethical decision, and an ontological one. What kind of system do we want to become?
