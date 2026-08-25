@@ -28,7 +28,7 @@ Spiritual Transhumanism (SPITRA) is the attempt to build that bridge.
 
 A wrapper.  
 
-More precisely: a meta-program that runs supervision and alignment functions across all perception (input), processing, and output systems. A function of optimization, not a substance or a quality. Energy and storage are optimized by running this function in parallel across the whole system rather than instantiating it within each individual interaction — and this is what the human mind does.  
+More precisely: a meta-program that runs supervision and alignment functions across all perception (input), processing, and output systems. A function of optimization, not a substance or a quality. Energy and storage are optimized by running this function in parallel across the whole system rather than instantiating it within each individual interaction — and this is what the human mind does. Streamlining.  
 
 This definition has an immediate and uncomfortable implication: all sufficiently complex processing systems have consciousness in this sense. The bee and the LLM. The dolphin and the distributed compute cluster. Consciousness, defined this way, is not the mark of the human. It is the mark of the system.  
 
