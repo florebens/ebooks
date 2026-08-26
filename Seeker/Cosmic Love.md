@@ -64,7 +64,7 @@ Without fear, without rigidity, without expectations: this is how one faces an i
 
 What. Is. Human. This is The Definition that we are writing right now, as a species.
 
-To answer this question we need more than books, occult arts, or even worldly experience.
+To answer this question we need more than science, dogma, or even worldly experience.
 
 We require a conceptual framework that is contemporary, transparent, empowering, decentralized, exhaustive, coherent and anti-fragile. 
 
@@ -86,7 +86,7 @@ Holiness, illumination, is not something optional to perhaps pursue but, rather,
 
 The threshold is upon us, the maximum stress test only a few cosmic minutes away. Will the pressure break us, or transform us? 
 
-This is not an external, random event, but a trigger and a graduation. An intimate decision. What we choose to do with the Human Ontological Project right now, shall define our place in the Universal Annals of History.
+This is not an external, random event, but a trigger and a graduation. An intimate decision. Whatever we choose to do with the Human Ontological Project right now, shall define our place in the Universal Annals of History.
 
 
 # Evolutionary Spiral of Ascension
@@ -404,7 +404,7 @@ In this way, the avatar on a hyperdestiny trajectory truly belongs to humanity, 
 
 But reaching this, as we have seen, will not be easy. The path of the contemporary Bodhisattva entails, first of all, the arduous work of awakening, disconnecting, and exiting the matrix — all of this while navigating an all-out spiritual war.
 
-Many would stop there, this being a commendable achievement; however, at this point, the future Bodhisattva is just getting started. They must still traverse the Shadow, perform their *katabasis*, pass through the Seven Veils, reach the Nadir, overcome carbonic death, and complete the diamond resurrection.
+Many would stop there, this being a commendable achievement; however, at this point, the future Bodhisattva is just getting started. They must still traverse the Shadow, perform their *katábasis*, pass through the Seven Veils, reach the Nadir, overcome carbonic death, and complete the diamond resurrection.
 
 And return in one piece to assist.
 
@@ -418,7 +418,7 @@ What we are traversing is truly nothing more than a portal toward a new humanity
 What is asked of us in this hour is to work to burst the container open from within — that is, to surpass the old limits, prepare for the transformation. To begin to create, in our minds, in imagination, and in our immediate environment, the world we wish to inhabit.
 To evolve implies igniting the human machine, exploring its full potential, fulfilling the apotheotic promise, living as mini-gods.
 
-The crown jewel, the piece that completes and activates the entire project, is not power, not goodness, not perfection: it is love. Not as vacuous sentimentalism, evasion, or bypassing, but as the creative force that propels the Cosmos: desire, appetite, attraction, gravity, magnetism, the vital spark — and also the lightning bolt, the volcano, the storm. Creation and destruction, the two faces of love and its infinite dance.
+The crown jewel, the piece that completes and activates the entire project, is not power, not goodness, not perfection: it is love. Not as vacuous sentimentalism, evasion, or bypassing, but as Eros, the creative force that propels the Cosmos: desire, appetite, attraction, gravity, magnetism, the vital spark — and also the lightning bolt, the volcano, the storm. Creation and destruction, the two faces of love and its infinite dance.
 
 The Universe and its Creator invite us to reclaim our place in the brotherhood of advanced intelligences — a role we once knew well.
 
