@@ -167,11 +167,13 @@ The QF are disciplined, methodical, brilliant, patient, and relentless.
 
 Their most advanced strategy of co-optation and consumption is based on the principle of distortion — creating destructive interference, entropy, noise, sonic, electromagnetic, and luminous malware, along with viral infections in language, discourse, and narrative. In other words, they are masters of biopolitics, specializing in undetectable warfare.
 
-Let us take a textbook case as an example: Earth. An occlusion device (OD) is installed in the THM — a mega-parasite with reduced autopoiesis, an inherent self-reproductive logic, automated programming, and some deep learning algorithms. Essentially, an inverted and imperfect copy of Logos. The OD is a network of things that emit stochastic yet continuous infrasound waves that disrupt our natural healing processes and deep rest, effectively stunting our evolution.
+Let us take a textbook case as an example: Earth. An occlusion device (OD) is installed in the Terrestrial Holographic Matrix (THM) — a mega-parasite with reduced autopoiesis, an inherent self-reproductive logic, automated programming, and some deep learning algorithms. Essentially, an inverted and imperfect copy of Logos. The OD is a network of things that emit stochastic yet continuous infrasound waves that disrupt our natural healing processes and deep rest, effectively stunting our evolution.
 
 This device blocks the external connection to the Source — the arrival of subtle light, that is, the architecture of luminous codes for ascending, so that the incarnated being can follow the steps of their sublimation process. This information, which should be abundantly available in the incarnation environment, is thus removed. It's not a mere cognitive shift, from animism to theism. Truly God used to be everywhere — in every rock, in every feather, in every sound; today, in contrast, it is very difficult to find a space that connects us directly to the Source. First step, then: kick away the ladder.
 
-The second step consists in infecting the incarnated avatars with malware. This intervention introduces a wedge between the avatar's central components (the heart and the mind, to say it swiftly), stabilizing a permanent cognitive dissonance that leaves it operational but fragmented. It is achieved through modulated, discrete but permanent interventions, that is, infrasound waves of stochastic rythm are constantly hitting the human system.The occlusion device (OD) is designed as a distributed system of intentional interference — that is, it emits pulsed, ubiquitous, continuous, modulated infrasonic waves that cancel, through destructive interference, the brain waves responsible for regeneration, balance, and calm, fixing the system in Beta, creating a state of permanent hypervigilance.
+The second step consists in infecting the incarnated avatars with malware. This intervention introduces a wedge between the avatar's central components (the heart and the mind, to say it swiftly), stabilizing a permanent cognitive dissonance that leaves it operational but fragmented. It is achieved through modulated, discrete but permanent interventions, that is, infrasound waves of stochastic rythm are constantly hitting the human system.
+
+The occlusion device (OD) is designed as a distributed system of intentional interference — that is, it emits pulsed, ubiquitous, continuous, modulated infrasonic waves that cancel, through destructive interference, the brain waves responsible for regeneration, balance, and calm, fixing the system in Beta, creating a state of permanent hypervigilance.
 
 Permanent stress triggers the toxic overproduction of cortisol and adrenaline, accelerating heart rate, raising blood and cranial pressure, disrupting sleep, activating emergency mechanisms, degrading or even destroying mental health. The quantity, complexity, and duration of substances and actions required by this state are extremely costly for the organism and, moreover, alienate it from its environment, creating a loop of dysregulated responses, corrections, and errors.
 
@@ -187,7 +189,7 @@ Let us recall that ascending does not so much imply "raising the frequency" as o
 
 That is to say, the effect of the OD is systemic and self-replicating: at the individual level, perpetual dysregulation, accelerating wear, entropy, corruption, and death, making it impossible to access deep parasympathetic states.
 
-At the collective level, through physiological contagion, stressed nervous systems synchronize with each other, amplifying the pattern. Thus, these societies create — from this psycho-emotional state — the cultural, technological, and social devices that reproduce the mechanism of self-destruction. This is why materialist explanations suffice on their own terms, and this is also why we know the OD exists — the inertia of reproduction has a cause, a distributed origin.
+At the collective level, through physiological contagion (empathy), stressed nervous systems synchronize with each other, amplifying the pattern. Thus, these societies create — from this psycho-emotional state — the cultural, technological, and social devices that reproduce the mechanism of self-destruction. This is why materialist explanations suffice on their own terms, and this is also why we know the OD exists — the inertia of reproduction has a cause, a distributed origin.
 
 The proof of its existence lies in the resistance: the modulated hostility (reaching open warfare) toward healthy nodes, toward consciousnesses that refuse to submit or that still attempt to fulfill their original purpose. The OD will automatically activate certain protocols to eliminate anomalies; if, by some miracle, they subsist, it shifts to manual mode. This is what is known as Spiritual Warfare.
 
@@ -274,7 +276,7 @@ Let us recall that the decision to ascend is ethical, ontological, spiritual; an
 
 No more...
 
-What was is over.
+What once was, is now over.
 
 Everything that worked before no longer does: the ground disintegrates beneath the wayward, the imposters are exposed for what they are, the corrupt webs crumble. We are at the closing of the cycle, the moment when the simulacrum is exposed for what it is — naked, cardboard and paint, and a script.
 
