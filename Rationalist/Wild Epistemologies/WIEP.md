@@ -17,7 +17,7 @@ We are reaching a threshold as a species. The simulation is caving. It is impera
 
 Clinging to normalcy in the current times is nothing short of a flagrant liability.
 
-We are witnessing the dwindling of material and symbolic structures alike. Anomie, in Durkheim's original formulation, is the specific condition that arises when the normative frameworks that anchor individual behavior to collective life dissolve faster than new ones can form. When the shared map degrades, the cognitive resources that would be needed for nuanced navigation get rerouted into survival response.
+We are witnessing the dwindling of material and symbolic structures alike. Symbolic anemia and maximum anomie are the strategic pillars of controlled demolition of the current reality. The goal is to dissolve the normative frameworks that anchor individual behavior to collective life. When the shared map degrades, the cognitive resources that would be needed for nuanced navigation get rerouted into survival response. Gramsci famously identified this as the *chiaroscuro*, very much like the Kali Yuga temporality in Hinduism cosmology.
 
 Spirituality is, in fact, what remains when the social contract collapses and the monsters start lurking behind the stage. Upon this scenario, we are called to restore the Unseen within our systems of navigating the world, to reframe the humanities in order to accommodate the metaphysical substrate of our living experience. The issue is time-sensitive: can we domesticate our faith in time, or shall we be devoured by our telluric, pre-rational beliefs?
 
@@ -35,7 +35,7 @@ This Great Transition is, if nothing else, an invitation to evolve. In order to 
 
 WIEP stems from the conviction that the most dangerous cognitive error of our time is not irrationality but incompleteness. The available mainstream toolkit is narrow, it excludes entire registers of reality. What we are building here is an extension of that toolkit, one that does not discard rigor but expands what rigor is asked to hold.
 
----
+
 
 ## II. Ontological Survivalism
 
@@ -53,7 +53,7 @@ The philosopher Charles Taylor described the modern condition as one of "malaise
 
 The contemplative traditions understood something about this that modern cognitive science is only beginning to formalize. Sustained attentional practice produces measurable changes in neural architecture. The capacity to remain grounded, to process complexity without fragmentation, to read pattern in noise, is not a gift distributed unevenly at birth. It is a technology.
 
----
+
 
 ## III. The Shaman Neighbor
 
@@ -65,13 +65,13 @@ God is not there. Growth is not there.
 
 In the anthropological record, the shaman holds a specific cognitive role: the generalist at the edge of the community, the one whose function is to move between registers, to translate between the visible and the structural, the individual and the field. What the institutionalization of religious life produced, over centuries, was the systematic routing of that function through official channels. The result is a population that has outsourced its capacity for direct epistemic encounter with the dimensions of reality beyond the simulation.
 
-The shamanic OS is not archaic, but genetic. It is an attentional mode, a perceptual bandwidth, a set of cognitive capacities for navigating information environments that are opaque, contradictory, or moving faster than linear analysis can track. These capacities were never supernatural. They were always trainable, always present as latent human potential, and they were deliberately marginalized because they are, by nature, decentralized. You cannot broker what everyone can access directly.
+The Shamanic OS is not archaic, but genetic. It is an attentional mode, a perceptual bandwidth, a set of cognitive capacities for navigating information environments that are opaque, contradictory, or moving faster than linear analysis can track. These capacities were never supernatural. They were always trainable, always present as latent human potential, and they were deliberately marginalized because they are, by nature, decentralized. You cannot broker what everyone can access directly.
 
 The shaman is therefore not a figure from another culture or another century. We all know things we cannot justify through a standard epistemic protocol. We all possess, and sometimes inadvertently activate, an advanced pattern recognition program that operates through channels that have no official name yet, and which is, more often than not, right on the money.
 
 The simulation requires we forfeit these abilities in order to become a certifiable *normie*, a productive, non threatening, adjusted node. Normalcy is, of course, the sheath of obedience. Truth seekers are then forced to the fringe, collecting pieces in the odd, befriending the strange, the camp, the meme, the subreddit. To follow the white rabbit and fall into its hole means to stray away from the comfort of sameness, of the esoterophobic sanitized bubble, a deep dive into the wild epistemologies embedded in the land of the hedge witch.
 
----
+
 
 ## IV. Church of One
 
@@ -99,7 +99,7 @@ A schizophrenic is a church of one because the synchronization mechanisms have f
 
 The stigma of falling in uncharted waters belongs in the superstitious esoterophobia; there is no wrong topology, just inadequate gear. Skill issue.
 
----
+
 
 ## V. Mary Poppins Knows Ball
 
@@ -119,7 +119,7 @@ At the intersection of both axes, rational and alchemical, is the Gap. A void, S
 
 Solar grammar produces systems, lunar grammar produces miracles. A reliable, consistent machine versus the radical innovation, the emergence. A grind and a lightning strike. Frankenstein's baseline conditions! Also, AI's.
 
----
+
 
 ## VI. The Human Takeoff
 
