@@ -1,6 +1,6 @@
 # WILD EPISTEMOLOGIES (WIEP)
 
-*An extended framework for human evolution*
+### *Productive Psychosis, Shamanic OS and Endurance in the Ontological Desert*
 
 **Florencia Benson**
 Shevirat, 2026
