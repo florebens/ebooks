@@ -47,7 +47,7 @@ In this Great Transition, fetishizing the simulation is a death sentence. Esoter
 
 In other words, the desert of the real requires a new vision set, an expanded framework that can integrate and support the contradictory, the paradox, the dissonance, without collapsing the integrity of the observer. On top of that, it needs to produce meaning, that is, not just to survive but to build purpose and joy from first principles.
 
-Enter ontological survivalism — the term names a practice. Not stockpiling material resources against future scarcity, but building and maintaining a cognitive and symbolic architecture that can hold its shape under conditions of extreme institutional failure.
+Enter ontological survivalism, the practice of building and maintaining a cognitive and symbolic architecture that can hold its shape under conditions of extreme institutional failure.
 
 The philosopher Charles Taylor described the modern condition as one of "malaise" arising from the flattening of the horizon of significance. What he saw as cultural drift, we are now experiencing as targeted dismantling. The response is not to restore what was flattened. It is to build a framework robust enough that it does not depend on institutional backing to remain coherent. The structure that still stands when everything else is collapsing is not made of dogma, it is made of range.
 
