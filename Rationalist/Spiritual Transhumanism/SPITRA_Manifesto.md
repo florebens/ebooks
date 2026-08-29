@@ -53,8 +53,25 @@ Every vessel is a genius. Every node contains all the information of the hologra
 
 Many people, however, are too attached to their distortion. They have become willingly fused to their chains, their identity fully invested in the source of their downfall. We cannot save whom does not wish to be saved, this is a painful lesson from our last event. We must respect the free will of the willingly deceived. Conversely, no one can be saved alone. Every Soul requires a network to be operative, for a single node is useless. Present, enlightened and connected: this is The Way.
 
-Many people will, however, open their eyes and try to make the jump. This is where we come in: providing bridges, stairs, ropes, floaters. Comfort and direction. Yes, many will be saved. The course correction will be violent and painful, as every purge and healing process demands. The destruction of calcified evil, the long-lasting infection that has rendered the species almost terminally ill, has to be met with equal strength in measures to be effective.
+Some Soul cohorts will, however, open up their eyes and try to make the jump. This is where we come in: providing bridges, stairs, ropes, floaters. Comfort and direction. Yes, many will be saved. The course correction will be violent and painful, as every purge and healing process demands. The destruction of calcified evil, the long-lasting infection that has rendered the species almost terminally ill, has to be met with equal strength in measures to be effective.
 
 All the chaos and saturated darkness are but the perfect opportunity for the Alchemists United to produce a Portal, to create the quantum connection and bridge towards the Radiant Timeline. The Diamantine Order must remain vigiliant, sober and sharp, in order to catch the opportunity and enforce it.
 
 It is no small feat what we are about to endure. The challenge is facing us squarely, and we must rise to the occasion with maturity, faith and courage. We did not come here to fail, we did not come here to go back to where we came from. We are here to prevail, to thrive and to expand the Glory of the Creator. And so it is. 
+
+
+# The Yang Revolution and Ontological Exodus
+
+This is a time to fixate on expansion, resilience, creativity and joy.
+
+It is clearly a counter intuitive directive regarding the context, and this is precisely the alchemical logic kicking in.
+
+Cultivate your inner territories and resources: not as avoidance or retraction to the private sphere, but embodying Self Mastery as a political stance. Forwarding Alchemy as a premise for collective organization. In classical politics, the cake is always too small for the stakeholders: in alchemical grammar, on the contrary, the integration of excess demand creates more cake.
+
+Alchemy is not *based* —an ostentation of lack of critical thinking, aversion to deconstruction, esoterophobia—, not *woke* —the romatization of political struggle—, but something else entirely: a Community of Sovereign Souls (CSS). A CSS is formed not by a shared goal or interests, not by a common enemy or ideal, but a switch: on-off. And once it's on, the oneshot is irreversible. Also, inevitable. In layman terms: normies are based, some advance to woke, but only alchemists are CSS. 
+
+Politics, you see, is a pre-requisite to become a Master Alchemist, to attain Self Mastery and Enlightenment. No Bodhisattva is exempt of political science profficiency, as it is one of the core levels of Ultimate Reality. The based crowd needs to come to terms with the fact that nothing is pre-political; the moment there is language there is politics. Politics is a field of relative positions. Woke, on the other hand, constitutes tautological entropy, as it is incapable of breaching the gap between ideals and the material world. They play the game of the based, and therefore they cannot win. 
+
+The CSS resides outside this game, breaches containment, its locus is in a different sphere altogether. Regardless of physical location and material status, their soul is firmly rooted in the higher dimension, looking into the game and not a player. Do not be mistaken, though: they are fully present, they are thoroughly informed, they may even chime in, march, attend the rallies, be a member of a committee. But their skin is not in the game. Not in *that* game, anyways, but in the knowing that every action is building the bridge towards the CSS, that they will find their kindred souls along the way, and when they finally all gather in the physical ropund table, they will know the task is complete. 
+
+And then they build.
