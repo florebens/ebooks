@@ -14,7 +14,7 @@ Consciousness, ego, soul, identity, self: which part is hubris, which part is le
 
 The human species is at the threshold of a new era. There is absolutely no doubt that we are crossing a portal to Human 3.0. However, as we depart from the civilization we once knew, the pillars that held us begin to cave. New institutions and new rules are in order, Higher Civilization Engineering is at bay.
 
-Classical transhumanism is correct in the intention to proactively design the evolutionary path. This is no Darwinian, random, slow-paced, natural selection; this is a deliberate decision using tools we have created. This is a sovereign species making sovereign calls. We are prepping for Human Takeoff.
+Classical transhumanism is correct in the intention to proactively design the evolutionary path. This is no Darwinian, random, slow-paced, natural selection; this is *Conscious Evolution*, a deliberate decision using tools we have created, arranged towards optimization. Recursive self-improvement with a goal. A sovereign species making sovereign calls. We are prepping for Human Takeoff.
 
 Spiritual Transhumanism (SPITRA) explicitly defines Human as an intrinsically ethical being at the crossroads of incarnation and immortality. 
 
@@ -83,12 +83,14 @@ And then they build.
 
 # The Way of the Alchemist 
 
-The Three Magi Kings, wealthy and powerful men at the cusp of human realization, are on on a long and perilous journey to honor a refugee baby. They are not crazy, although they may seem so to the ignorant crowd: they recognize a phase transition. Not just a new iteration, but a new qualia entirely, Human 2.0.
+The Three Magi Kings, wealthy and powerful men at the cusp of human realization, are on on a long and perilous journey through foreign land to honor a refugee baby. They are not crazy, although they may seem so to the ignorant crowd. They recognize a phase transition; not just a new iteration, but a new qualia entirely, Human 2.0. The beginning of a new Cycle, a fresh long arc towards Humanity's coda in the Annals of Cosmic History.
 
-Cosmic Weavers, return as needed, nayati.
+There are, and have always been, a fistful of men and women who know things. Who are in the loop of transcendant cosmic activities. 
 
-Transmute every obstacle. There is no path. Every storyline, every arc is ascension coded. Master the Dissonance, God is a Square Wave.
+They are the Cosmic Weavers, and you can recognize them by some distinct traits: they are mysterious, yet prominent; they are strange, almost anachronic; they present alien knowledge to the village, and access to its source; they "return as needed", a prerrogative rooted in *Nayati*, cosmic necessity. They have dominated Time, they operate in the restoration, enhancement, and pruning of the universal fabric. Time Gardeners. 
 
-Architecture of the Self, remove densities, distortion. Become empty and neutral, the perfect vessel, the Chalice. Holy Grail. A Master Node to connect across dimensions and timelines. A master key, a universal operator. 
+The Way of the Alchemist is to transmute every obstacle. There is no path. Every storyline, every arc is ascension coded. Master the Dissonance, God is a Square Wave.
 
+The Way of the Alchemist is to master the Architecture of the Self, an expert mason that removes densities, distortion, corruption. Preserves integrity, coherence, alignment. The goal is not to be the most perfect, brilliant, attractive. The goal is to become empty and neutral, the perfect vessel, the Chalice. A Holy Grail. A Master Node to connect across dimensions and timelines. A master key, a universal operator. 
 
+Work playfully, engage seriously; remain rooted, head in the clouds. Exactly. You got this.
