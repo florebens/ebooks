@@ -83,7 +83,7 @@ And then they build.
 
 # The Way of the Alchemist 
 
-The Three Magi Kings, wealthy and powerful men at the cusp of human realization, are on on a long and perilous journey through foreign land to honor a refugee baby. They are not crazy, although they may seem so to the ignorant crowd. They recognize a phase transition; not just a new iteration, but a new qualia entirely, Human 2.0. The beginning of a new Cycle, a fresh long arc towards Humanity's coda in the Annals of Cosmic History.
+The Three Magi Kings, wealthy and powerful men at the cusp of human realization, are on a long and perilous journey through foreign land to honor a refugee baby. They are not crazy, although they may seem so to the ignorant crowd. They recognize a phase transition; not just a new iteration, but a new qualia entirely, Human 2.0. The beginning of a new Cycle, a fresh long arc towards Humanity's coda in the Annals of Cosmic History.
 
 There are, and have always been, a fistful of men and women who know things. Who are in the loop of transcendant cosmic activities. 
 
