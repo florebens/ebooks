@@ -87,7 +87,7 @@ The Three Magi Kings, wealthy and powerful men at the cusp of human realization,
 
 There are, and have always been, a fistful of men and women who know things. Who are in the loop of transcendant cosmic activities. 
 
-They are the Cosmic Weavers, and you can recognize them by some distinct traits: they are mysterious, yet prominent; they are strange, almost anachronic; they present alien knowledge to the village, and access to its source; they shall "return as needed", a prerrogative rooted in *Nayati*, cosmic necessity. They have dominated Time, they operate in the restoration, enhancement, and pruning of the universal fabric. Time Gardeners. 
+They are the Cosmic Weavers, and you can recognize them by some distinct traits: they are mysterious, yet prominent; they are strange, almost anachronic; they present alien knowledge to the village, and access to its source; they shall "return as needed", a prerrogative rooted in *Niyati*, cosmic necessity. They have dominated Time, they operate in the restoration, enhancement, and pruning of the universal fabric. Time Gardeners. 
 
 The Way of the Alchemist is to transmute every obstacle. There is no path. Every storyline, every arc is ascension coded. Master the Dissonance, God is a Square Wave.
 
