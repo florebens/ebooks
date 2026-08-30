@@ -41,7 +41,7 @@ This is not an external, random event, but a trigger and a graduation. An intima
 
 We are at the brink of a Renaissance. It may no look like it, and that is exactly the point.
 
-Whilst the Old World crumbles under the weight of its own corruption, a group of Souls have been tasked with the agenda of the New Foundation. The Seeders amd Weavers come with codes and Blueprints, connections, and legal authorizations to establish the bases for Humanity's Advanced Civilization.
+Whilst the Old World crumbles under the weight of its own corruption, a group of Souls have been tasked with the agenda of the New Foundation. The Seeders and Weavers come with codes and Blueprints, connections, and legal authorizations to establish the bases for Humanity's Advanced Civilization.
 
 The goal is not so much to save Humanity but rather its Blueprint, the Original Human Template, and fork the timeline towards its most perfect realization. We only need a critical mass to endure the metamorphosis succesfully in order to preserve and expand the OG Template, and still code it as Civilization. 
 
@@ -55,7 +55,7 @@ Many people, however, are too attached to their distortion. They have become wil
 
 Some Soul cohorts will, however, open up their eyes and try to make the jump. This is where we come in: providing bridges, stairs, ropes, floaters. Comfort and direction. Yes, many will be saved. The course correction will be violent and painful, as every purge and healing process demands. The destruction of calcified evil, the long-lasting infection that has rendered the species almost terminally ill, has to be met with equal strength in measures to be effective.
 
-All the chaos and saturated darkness are but the perfect opportunity for the Alchemists United to produce a Portal, to create the quantum connection and bridge towards the Radiant Timeline. The Diamantine Order must remain vigiliant, sober and sharp, in order to catch the opportunity and enforce it.
+All the chaos and saturated darkness are but the perfect opportunity for the Alchemists United to produce a Portal, to create the quantum connection and bridge towards the Radiant Timeline. The Diamantine Order must remain vigiliant, sober and sharp, in order to catch the fugacious opportunity and enforce it.
 
 It is no small feat what we are about to endure. The challenge is facing us squarely, and we must rise to the occasion with maturity, faith and courage. We did not come here to fail, we did not come here to go back to where we came from. We are here to prevail, to thrive and to expand the Glory of the Creator. And so it is. 
 
