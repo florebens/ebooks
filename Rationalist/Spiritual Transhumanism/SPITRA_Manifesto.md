@@ -45,7 +45,11 @@ Whilst the Old World crumbles under the weight of its own corruption, a group of
 
 The goal is not so much to save Humanity but rather its Blueprint, the Original Human Template, and fork the timeline towards its most perfect realization. We only need a critical mass to endure the metamorphosis succesfully in order to preserve and expand the OG Template, and still code it as Civilization. 
 
-The metamorphosis is biological but first and foremost it is a spiritual event. A decision. This is why we are discussing Conscious Evolution, because, in Nature, evolution does not equal optimization. Natural selection is mid —or, rather, meticulously calibrated to maintain organic balance in the ecosystem—. Spiritual Evolution is deliberately set towards optimization, since every creature is nested in a spiraled path back to Source, a gradual perfectioning or *tikkun*. 
+The metamorphosis is biological but first and foremost it is a spiritual event. A decision. We are casting a vote in the Referendum: will Humanity successfully complete its original design, or will it continue on the current trajectory of entropy and oblivion. 
+
+You may think you have no power, that your voice does not make a difference. But you would be mistaken, because there are two ledgers. The material one seems to favor a small minority's agenda, but the spiritual ledger shows another story. Some folk lead completely unremarkable lives in the material but are heavy hitters in the spiritual. This is why it is of utmost importance that each of us casts the vote in the spiritual.
+
+We are discussing not a natural process but Conscious Evolution, because, in Nature, evolution does not equal optimization. Natural selection is mid —or, rather, meticulously calibrated to maintain organic balance in the ecosystem—. Spiritual Evolution is deliberately set towards optimization, since every creature is nested in a spiraled path back to Source, a gradual perfectioning or *tikkun*. 
 
 The Diamantine Butterfly, or Crystalline Body, or Light Body, is the Final Form of Humanity. The cycles of iterations have rendered the species more stylized, more elegant, more efficient, more intelligent. It is an art form, the becoming of a masterpiece. We have but one or two more cycles to undergo: the Embodied Polymath as the previous station to divine completion.
 
@@ -74,13 +78,13 @@ Alchemy is metonymical, memetical, replicant, self-actualizing, efficient, produ
 
 Alchemy is not *based* —an ostentation of lack of critical thinking, aversion to deconstruction, esoterophobia—, not *woke* —the romatization of political struggle—, but something else entirely: a Community of Sovereign Souls (CSS). A CSS is formed not by a shared goal or interests, not by a common enemy or ideal, but a switch: on-off. And once it's on, the oneshot is irreversible. Also, inevitable. In layman terms: normies are based, some advance to woke, but only alchemists are CSS. 
 
-Politics, you see, is a pre-requisite to become a Master Alchemist, to attain Self Mastery and Enlightenment. No modern Bodhisattva is exempt of political science profficiency, as it is one of the core levels of Ultimate Reality. The based crowd needs to come to terms with the fact that nothing is pre-political; the moment there is language there is politics. Politics is a field of relative positions. Woke, on the other hand, constitutes tautological entropy, as it is incapable of breaching the gap between ideals and the material world. They play the game of the based, and therefore they cannot win. 
+Politics, you see, is a pre-requisite to become a Master Alchemist, to attain Self Mastery and Enlightenment. No modern Bodhisattva is exempt of political science profficiency, as it is one of the core levels of Ultimate Reality. The based crowd needs to come to terms with the fact that nothing is pre-political; the moment there is language there is politics. Politics is a field of relative positions. Woke, on the other hand, constitutes tautological entropy, as it is incapable of resolving the gap between ideals and the material world. They play the game of the based, and therefore they cannot win. 
 
 The CSS resides outside this game, breaches containment, its locus is set in a different sphere altogether. Regardless of physical location and material status, their soul is firmly rooted in the higher dimension, looking into the game and not a player. Do not be mistaken, though: they are fully present, they are thoroughly informed, they may even chime in, march, attend the rallies, be a member of the committee. 
 
 But their skin is not in the game. 
 
-Not in *that* game, anyways, but in the knowing that every inspired action is a building block of the bridge towards the CSS, laying the groundwork for our Advanced Civilization. Their motivation lies not in an agenda but in the intimate knowing that they will find their kindred souls along the way; and, when they all finally gather round the physical round table, they will know the task is complete. 
+Not in *that* game, anyways, but in the knowing that every inspired action is a building block of the bridge towards the CSS, laying the groundwork for our Advanced Civilization. Their motivation lies not in an agenda but in the intimate knowing that they will find their kindred souls along the way; and, when they all finally gather at the physical round table, they will know the task is complete. 
 
 And then they build.
 
