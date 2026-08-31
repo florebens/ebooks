@@ -72,7 +72,7 @@ It is clearly a counter intuitive directive regarding the context, and this is p
 
 Cultivate your inner territories and resources: not as avoidance or retraction to the private sphere, but embodying Self Mastery as a political stance. Forwarding Alchemy as a premise for optimal collective organization. In classical politics, the cake is always too small for the stakeholders: in alchemical grammar, on the contrary, the integration of excess demand creates more cake.
 
-Alchemical logic says more breeds more. Give a $100 to a magician, he will make it disappear and reappear. Give $1 to an alchemist and he will make a billion. 
+Alchemical logic says more breeds more. Five loaves of bread and two fish will feed a crowd. Give a $100 to a magician, he will make it disappear and reappear. Give $1 to an alchemist and he will make a billion. 
 
 Alchemy is metonymical, memetical, replicant, self-actualizing, efficient, productive, innovative. Always a variant in the next iteration. Trial and error of happy accidents only.
 
