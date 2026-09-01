@@ -43,11 +43,11 @@ We are at the brink of a Renaissance. It may no look like it, and that is exactl
 
 Whilst the Old World crumbles under the weight of its own corruption, a group of Souls have been tasked with the agenda of the New Foundation. The Seeders and Weavers come with codes and Blueprints, connections, and legal authorizations to establish the bases for Humanity's Advanced Civilization.
 
-The goal is not so much to save Humanity but rather its Blueprint, the Original Human Template, and fork the timeline towards its most perfect realization. We only need a critical mass to endure the metamorphosis succesfully in order to preserve and expand the OG Template, and still code it as Civilization. 
+The goal is not so much to save Humanity but rather its Blueprint, the Original Human Template, and fork the timeline towards its most perfect realization. We only need a critical mass to endure the metamorphosis succesfully in order to preserve and expand the OG Template, and still code it as a civilizational achievement.
 
-The metamorphosis is biological but first and foremost it is a spiritual event. A decision. We are casting a vote in the Referendum: will Humanity successfully complete its original design, or will it continue on the current trajectory of entropy and oblivion. 
+The metamorphosis is biological but first and foremost it is a spiritual event. A decision. We are casting a vote in the Referendum: is Humanity willing to pivot towards the path of successful completion of its original design, or shall it continue on the current trajectory of entropy and oblivion. 
 
-You may think you have no power, that your voice does not make a difference. But you would be mistaken, because there are two ledgers. The material one seems to favor a small minority's agenda, but the spiritual ledger shows another story. Some folk lead completely unremarkable lives in the material but are heavy hitters in the spiritual. This is why it is of utmost importance that each of us casts the vote in the spiritual.
+You may think you have no power to force the exit, that your voice does not make a difference. But you would be mistaken, because there are two ledgers. The material one seems to favor a small minority's agenda, but the spiritual ledger shows another story. Some folks, in fact, seen to lead completely unremarkable lives in the material, yet in the spiritual they are heavy hitters. Mighty Souls tend to disguise themselves humbly in the material realms. This is why it is of utmost importance that each of us casts the vote in the spiritual.
 
 We are discussing not a natural process but Conscious Evolution, because, in Nature, evolution does not equal optimization. Natural selection is mid —or, rather, meticulously calibrated to maintain organic balance in the ecosystem—. Spiritual Evolution is deliberately set towards optimization, since every creature is nested in a spiraled path back to Source, a gradual perfectioning or *tikkun*. 
 
