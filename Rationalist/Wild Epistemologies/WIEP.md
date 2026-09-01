@@ -117,7 +117,7 @@ The alchemical logic is complementary to the material, so it's lunar, cyclical, 
 
 When Mary Poppins opens her bottomless suitcase, she is summoning the Gap. She opens the psychotic portal and derives whatever is needed to remedy the torn threads of the present timeline. She does not go wild and produce a 24-karat Rolls Royce: she materializes with economy, taste, and accuracy. Common sense renders lethally effective alchemy. Paired together with her street-smart partner, Bert, the clever Animus, the entity becomes unstoppable.
 
-At the intersection of both axes, rational and alchemical, is the Gap. A void, Sacred Discontinuity, the Abyss as transductor. Something is produced out of something else. Something is produced from nothing. Or vice versa. It's a wild card, anything is possible, but there are rules. And laws. Playing with fire can cost you more than you could ever have.
+At the intersection of both axes, rational and alchemical, is the Gap. A void, Sacred Discontinuity, the Abyss as transductor. Daat, th secret Sephiroth, the wormhole that connects realms, the Sacred Hiatus, the creative void, the echo of *tzimtzum*; the complement of Maat, the written law and order. Something is produced out of something else. Something is produced from nothing. Or vice versa. It's a wild card, anything is possible, but there are rules. And laws. Playing with fire can cost you more than you could ever have.
 
 Solar grammar produces systems, lunar grammar produces miracles. A reliable, consistent machine versus the radical innovation, the emergence. A grind and a lightning strike. Frankenstein's baseline conditions! Also, AI's.
 
