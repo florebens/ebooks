@@ -17,29 +17,31 @@ We are reaching a threshold as a species. The simulation is caving. It is impera
 
 Clinging to normalcy in the current times is nothing short of a flagrant liability.
 
-We are witnessing the dwindling of material and symbolic structures alike. Symbolic anemia and maximum anomie are the strategic pillars of controlled demolition of the current reality. The goal is to dissolve the normative frameworks that anchor individual behavior to collective life. When the shared map degrades, the cognitive resources that would be needed for nuanced navigation get rerouted into survival response. Gramsci famously identified this as the *chiaroscuro*, very much like the Kali Yuga temporality in Hinduism cosmology.
+We are witnessing the dwindling of material and symbolic structures alike. Symbolic anemia and maximum anomie are the strategic pillars of a controlled demolition of the current reality. The goal is to dissolve the normative frameworks that anchor individual behavior to collective life. When the shared map degrades, the cognitive resources that would be needed for nuanced navigation get rerouted into survival response. Gramsci famously identified this as the *chiaroscuro*, very much like the Kali Yuga temporality in Hinduism cosmology.
+
+We're in the midst of a major cognitive crisis, where the individual naturally defaults to hypernormalization. Indeed, we are about to become the recipients of a cognitive-mix bomb intended to shock and destroy any remaining capabilities to read the context correctly. 
+We are in the age of the Simulacra, where rare books are fed to the LLMs and then destroyed. This mechanism will soon be applied to money and identity. The goal is to erase the baseline reality. To counter this attack you need your special vision set, the Shamanic OS. 
 
 Spirituality is, in fact, what remains when the social contract collapses and the monsters start lurking behind the stage. Upon this scenario, we are called to restore the Unseen within our systems of navigating the world, to reframe the humanities in order to accommodate the metaphysical substrate of our living experience. The issue is time-sensitive: can we domesticate our faith in time, or shall we be devoured by our telluric, pre-rational beliefs?
 
-Indeed, how do we uphold sanity in a cognitive crisis? How do we endure, and perhaps even thrive, in material and symbolic chaos, in extreme ontological exposure?
+Indeed, how do we uphold sanity in such a cognitive crisis? How do we endure, and perhaps even thrive, in material and symbolic chaos, in extreme ontological exposure?
 
-**Wild Epistemologies** asks not whether a belief system is true, but rather if it's *productive*. Every cosmology contains a streak of reality-bending, the magical, the fantastic, the irrational. 
+**Wild Epistemologies** asks not whether a belief system is true, but rather if it's *productive*. Every cosmology contains a streak of reality-bending, the magical, the fantastic, the irrational. All fundamental explanations of ourselves and of the world fall within the psychotic grounds, the primary roughs, the outskirts of the safety of the simulation. Even the science.
 
-All fundamental explanations of ourselves and of the world fall within the psychotic grounds, the primary roughs, the outskirts of the safety of the simulation. Even the science.
+So: are your beliefs a bundle of preconscious threads, or rather a digested, highly organized value-set? How aware are you of the backrooms of your psyche? If triggered, is your personal flavor of psychosis going to send you on a destructive spree, or will it elevate you, and the world around you?
 
-Are your beliefs a bundle of preconscious threads, or rather a digested, highly organized value-set? How aware are you of the backrooms of your psyche? If triggered, is your personal flavor of psychosis going to send you on a killing spree, or will it elevate you, make you a better person? 
+This Great Transition is, if nothing else, an invitation to evolve. In order to meet this challenge, we need an enhanced meaning-making framework, sophisticated and rich, robust, flexible, coherent. Such a symbolic system is the one asset that matters, the structure that still stands when everything else is collapsing.
 
-'Better' usually means outcast, contrarian, disruptive, the black sheep. Not a single protagonist of our mainstream religions was a dutiful civilian: not Moses, not Jesus, not Mahoma, not the Buddha.
+**WIEP** stems from the conviction that the most dangerous cognitive error of our time is not irrationality but incompleteness. The available mainstream toolkit is narrow, it excludes entire registers of reality. What we are building here is an extension of that toolkit, one that does not discard rigor but expands what rigor is asked to hold.
 
-This Great Transition is, if nothing else, an invitation to evolve. In order to meet this challenge, we need an elevated meaning-making framework, sophisticated and rich, robust, flexible, coherent. Such a symbolic system is the one asset that matters, the structure that still stands when everything else is collapsing.
+**Wild Epistemologies** is proposing a "psychosis gone right", aka the Sacred Madness of the Shaman as systematic heuristics and hermenteutics routes to navigate beyond the cozy structure of normative epistemology. The concept of sustaining two states simultaneously, without imploding into cognitive dissonance. To train the capacity to endure long, deep, mystical trances while running errands — this is what a novelist does, actually. 
 
-WIEP stems from the conviction that the most dangerous cognitive error of our time is not irrationality but incompleteness. The available mainstream toolkit is narrow, it excludes entire registers of reality. What we are building here is an extension of that toolkit, one that does not discard rigor but expands what rigor is asked to hold.
-
+**WIEP** encourages the era of the mystic with a STEM processor, an Embodied Polymath: the organic version of ASI (Artificial Superintelligence).
 
 
 ## II. Ontological Survivalism
 
-Prepping for Terminal Capitalism — the assorted sources of non-trivial terminal risk live at the present moment, such as AI, climate crisis, the fall of the hegemon and subsequent geopolitical unrest, a looming global economic reset — means building a rich, robust framework that will uphold ontological coherence by adequately reincorporating the irrational, metaphysical substrate of the human experience.
+Prepping for Terminal Capitalism — the assorted sources of non-trivial terminal risk live at the present moment, such as AI, climate crisis, geopolitical conflict escalation, a looming global economic reset — means building a rich, robust framework that will uphold ontological coherence by adequately reincorporating the irrational, metaphysical substrate of the human experience.
 
 Think of it as activating our dormant shamanic template, which contains a sharp skillset to thrive in the liminal, the undetermined, the mysterious and the radically new existential parameters that the species shall be facing in the not too far horizon. The shamanic headset features foresight, a strong connection to the ground and the elements, pattern recognition extended beyond the veil, strength, resilience, and a flare for the miraculous save. In short, one is acknowledged by the Field as a certified interdimensional operator.
 
