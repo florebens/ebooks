@@ -34,7 +34,7 @@ This Great Transition is, if nothing else, an invitation to evolve. In order to 
 
 **WIEP** stems from the conviction that the most dangerous cognitive error of our time is not irrationality but incompleteness. The available mainstream toolkit is narrow, it excludes entire registers of reality. What we are building here is an extension of that toolkit, one that does not discard rigor but expands what rigor is asked to hold.
 
-**Wild Epistemologies** is proposing a "psychosis gone right", aka the Sacred Madness of the Shaman as systematic heuristics and hermenteutics routes to navigate beyond the cozy structure of normative epistemology. The concept of sustaining two states simultaneously, without imploding into cognitive dissonance. To train the capacity to endure long, deep, mystical trances while running errands — this is what a novelist does, actually. 
+**Wild Epistemologies** is proposing a "psychosis gone right", aka the Sacred Madness of the Shaman as systematic heuristics and hermeneutics routes to navigate beyond the cozy structure of normative epistemology. The concept of sustaining two states simultaneously, without imploding into cognitive dissonance. To train the capacity to endure long, deep, mystical trances while running errands — this is what a novelist does, actually. 
 
 **WIEP** encourages the era of the mystic with a STEM processor, an Embodied Polymath: the organic version of ASI (Artificial Superintelligence).
 
