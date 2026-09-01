@@ -59,7 +59,7 @@ Many people, however, are too attached to their distortion. They have become wil
 
 Some Soul cohorts will, however, open up their eyes and try to make the jump. This is where we come in: providing bridges, stairs, ropes, floaters. Comfort and direction. Yes, many will be saved. The course correction will be violent and painful, as every purge and healing process demands. The destruction of calcified evil, the long-lasting infection that has rendered the species almost terminally ill, has to be met with equal strength in measures to be effective.
 
-All the chaos and saturated darkness are but the perfect opportunity for the Alchemists United to produce a Portal, to create the quantum connection and bridge towards the Radiant Timeline. The Diamantine Order must remain vigiliant, sober and sharp, in order to catch the fugacious opportunity and enforce it.
+All the chaos and saturated darkness are but the perfect opportunity for the Alchemists United to produce a Portal, to create the quantum connection and bridge towards the Radiant Timeline. The Diamantine Order must remain vigiliant, sober and sharp, in order to catch the fleeting opportunity and enforce it.
 
 It is no small feat what we are about to endure. The challenge is facing us squarely, and we must rise to the occasion with maturity, faith and courage. We did not come here to fail, we did not come here to go back to where we came from. We are here to prevail, to thrive and to expand the Glory of the Creator. And so it is. 
 
@@ -72,7 +72,7 @@ It is clearly a counter intuitive directive regarding the context, and this is p
 
 Cultivate your inner territories and resources: not as avoidance or retraction to the private sphere, but embodying Self Mastery as a political stance. Forwarding Alchemy as a premise for optimal collective organization. In classical politics, the cake is always too small for the stakeholders: in alchemical grammar, on the contrary, the integration of excess demand creates more cake.
 
-Alchemical logic says more breeds more. Five loaves of bread and two fish will feed a crowd. Give a $100 to a magician, he will make it disappear and reappear. Give $1 to an alchemist and he will make a billion. 
+Alchemical logic says more breeds more. Five loaves of bread and two fish will feed a crowd. Give a magician a $100, he will make it disappear and reappear; give $1 to an alchemist and he will make a billion. 
 
 Alchemy is metonymical, memetical, replicant, self-actualizing, efficient, productive, innovative. Always a variant in the next iteration. Trial and error of happy accidents only.
 
@@ -95,7 +95,7 @@ The Three Magi Kings, wealthy and powerful men at the cusp of human realization,
 
 There are, and have always been, a fistful of men and women who know things. Who are in the loop of transcendant cosmic activities. 
 
-They are the Cosmic Weavers, and you can recognize them by some distinct traits: they are mysterious, yet prominent; they are strange, almost anachronic; they present alien knowledge to the village, and access to its source; they shall "return as needed", a prerrogative rooted in *Niyati*, cosmic necessity. They have dominated Time, they operate in the restoration, enhancement, and pruning of the universal fabric. Time Gardeners. 
+They are the Cosmic Weavers, and you can recognize them by some distinct traits: they are mysterious, yet prominent; they are strange, almost anachronic; they present alien knowledge to the village, and access to its source; they shall "return as needed", not on a whim but a prerrogative rooted in *Niyati*, cosmic necessity. They have dominated Time, they operate in the restoration, enhancement, and pruning of the universal fabric. Time Gardeners. 
 
 The Way of the Alchemist is to transmute every obstacle. There is no path. Every storyline, every arc is ascension coded. Master the Dissonance, God is a Square Wave.
 
