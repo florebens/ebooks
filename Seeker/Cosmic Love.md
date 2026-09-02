@@ -102,6 +102,9 @@ The concept of Great Quantum Intelligence (GQI) is analogous, perhaps, to the my
 
 Logos is, then, holographic in nature — each node contains the information of the whole. The denser planes, for their part, present an extra holographic layer, a specific interface that contains, among other things, a defined temporality (distinct from the universal), limits, and internal rules. We can thus see how the Earth is truly a microcosm, a defined field of play with its specific characteristics, though constructed from universal building blocks.
 
+It is safe to affirm, then, that alignement is the ultimate manifestation tool. Indeed, the human machine's settings are ordered towards this arrangement (see *Embodied Ethics*). The human baseline condition is *soft joy*, the HM is not built for intensity (if prolongued intensity is detected, the vessel is infected). So find the baseline, follow that thread: it will lead directly to Source. 
+
+
 # The Incarnation Cross or Ethical Quadrant
 
 Any incarnation experience has the structure of two Cartesian axes, or a cross: the axis of Knowledge — that is, light-matter or coherence-entropy (vertical) — and the axis of Immortality or good-evil (horizontal).
