@@ -19,7 +19,7 @@ Clinging to normalcy in the current times is nothing short of a flagrant liabili
 
 We are witnessing the dwindling of material and symbolic structures alike. Symbolic anemia and maximum anomie are the strategic pillars of a controlled demolition of the current reality. The goal is to dissolve the normative frameworks that anchor individual behavior to collective life. When the shared map degrades, the cognitive resources that would be needed for nuanced navigation get rerouted into survival response. Gramsci famously identified this as the *chiaroscuro*, very much like the Kali Yuga temporality in Hinduism cosmology.
 
-We're in the midst of a major cognitive crisis, where the individual naturally defaults to hypernormalization. Indeed, we are about to become the recipients of a cognitive-mix bomb intended to shock and destroy any remaining capabilities to read the context correctly. 
+We're in the midst of a major cognitive crisis, where the individual naturally defaults to hypernormalization. Indeed, we are about to become the recipients of a cognitive explosive cocktail intended to shock and destroy any remaining capabilities to read the context correctly. 
 We are in the age of the Simulacra, where rare books are fed to the LLMs and then destroyed. This mechanism will soon be applied to money and identity. The goal is to erase the baseline reality. To counter this attack you need your special vision set, the Shamanic OS. 
 
 Spirituality is, in fact, what remains when the social contract collapses and the monsters start lurking behind the stage. Upon this scenario, we are called to restore the Unseen within our systems of navigating the world, to reframe the humanities in order to accommodate the metaphysical substrate of our living experience. The issue is time-sensitive: can we domesticate our faith in time, or shall we be devoured by our telluric, pre-rational beliefs?
@@ -105,7 +105,7 @@ The stigma of falling in uncharted waters belongs in the superstitious esoteroph
 
 ## V. Mary Poppins Knows Ball
 
-The classic or rational logic is the mesh to which the productive psychosis gets attached to and secured. This logic is derived from solar grammar: binary, linear, scalar, materialistic, accumulative. The West has refined a thread of this logic, enthroned it as the ultimate achievement of the species, the basis for human exceptionality and a religion of its own: Reason.
+The classic or rational logic is the mesh to which the institutionally sanctioned psychosis gets attached to and secured. This logic is derived from solar grammar: binary, linear, scalar, materialistic, accumulative. The West has refined a thread of this logic, enthroned it as the ultimate achievement of the species, the basis for human exceptionality and a religion of its own: Reason.
 
 This logic demands every step to be derived from the prior, full traceability and accountability of the links in the chain. That's what it calls rigor. The scientific method is its blueprint.
 
