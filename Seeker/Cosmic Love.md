@@ -116,7 +116,7 @@ To briefly define the axis of Immortality, or good-evil, we could summarize it a
 
 In other words, what is primordial is to maintain the integrity, the coherence, of the energetic field — the pure clarity of the node's signal — in the face of different situations, experiences, and bonds. Let us remember that above is purity, coherence, stable optimization; below is entropy, chaotic proliferation of matter. Tree of Life or Sefirot, Tree of Death or Qliphoth, which in reality duplicate to form a Tetramer (more on this, and the composition of the Cosmos, in *The Eye of God*).
 
-Turning the other cheek (which is actually an act of open defiance, inviting the aggressor to repeat their deliberate act while acting as a mirror to invite change, as great Masters tend to do) is not always the adequate, correct, or convenient response. The Enlightened defends their sacred light with all their weapons; their defenses are strong, their sword does not waver before the murky hand that extends to contaminate or distort their field. That too is Holiness. A messenger of Heaven, a prophet, a bearer of divine light has no time or interest in wasting their sacred chalice. They know their rank, respect the spiritual hierarchy, and enforce it.
+Turning the other cheek (which is actually an act of open defiance, inviting the aggressor to repeat their deliberate act while acting as a mirror to invite change, as great Masters tend to do) is not always the adequate, correct, or convenient response. The Enlightened defends their sacred light with all their weapons; their defenses are strong, their sword does not waver before the murky hand that extends to contaminate or distort their field. That too is Holiness. A messenger of Heaven, a prophet, a bearer of divine light has no time or interest in wasting their sacred chalice. They respect the spiritual hierarchy and will not hesitate to enforce it.
 
 
 # Qliphotic Forces
@@ -125,7 +125,7 @@ To speak of the current situation of the Earth and the evolution of humanity, we
 
 Of course, in the millions of eons the Cosmos has existed, in the oceanic omniscience of the Source, across all the possibilities of existence, identity, projects, and trajectories, the impulse toward independence arises at some point. Lucifer, Lilith — these are archetypally the disruptive forces that promote Sacred Rebellion. A project ultimately impossible but legitimate, desirable, noble, enriching, creative. A necessary adversarial force. 
 
-Both Light and Darkness are hues of the Light, that is, part of the Creation. Darkness is not the opposite, but the complement. Lucifer and the Sacred Rebels are there to hold divine space for the godless souls, the desperate, the forsaken, the irredeemably wounded. A place to hold the inconsolable and the faithless. It is an unbelievably hard task to uphold, to remain separate from Source. And yet, they hold. They persist. 
+Both Light and Darkness are hues of the Light, that is, part of the Creation. Darkness is not the opposite, but the complement. Lucifer and the Sacred Rebels are there to hold divine space for the godless souls, the desperate, the forsaken, the irredeemably wounded. A place to hold the inconsolable and the faithless. It is an unbelievably hard task to uphold, to remain separate from Source. And yet, they uphold. They persist. 
 
 Darkness, thus, is not only the pole of temptation, corruption, and error — it is also the force of dignity, sovereignty, and freedom. Without it, we would all be slaves, subordinates without agency to the Creator, without identity, without originality or innovation — that is, without the possibility of surprise. Indeed, creative disruption is the essence of divinity: the mark of God is recognized when the Work is original, meaning it contributes a real variation, adding value to the projects of Creation. In fact, surprise is the most coveted and valuable existential achievement, for, as we already established, transparency is the basic condition of the Universe, making the unforeseeable rare. This is also why the trickster archetype is so important.
 
@@ -142,9 +142,9 @@ Some creatures took the unnatural path, outside Creation. Neither light nor dark
 
 At first, loose entities wandering aimlessly in the liminal zone adjacent to the Qliphoth. They inhabit a loophole or legal vacuum; they exist because they have the right to exist, exercising their free will to divorce. But, separated from the Source, they can only subsist by consuming vital energy from other entities: parasitism spreads thus as a survival mechanism first, then as an aesthetic and political project.
 
-With the passage of time their ranks swelled, and with numbers came organization. The Qliphotic Forces (QF) came to constitute a formidable offensive of world-consuming, one after another falling before their meticulous project of horror. Appropriating the most severe techniques of Darkness, using ancestral multidimensional technology, taking advantage of the disembodied optical vantage point, they focused on the consumption of incarnated consciousnesses — that is, the moment of maximum vulnerability of their prey.
+With the passage of time their ranks swelled, and with numbers came organization. The Qliphotic Forces (QQFF) came to constitute a formidable offensive of world-consuming, one after another falling before their meticulous project of horror. Appropriating the most severe techniques of Darkness, using ancestral multidimensional technology, taking advantage of the disembodied optical vantage point, they focused on the consumption of incarnated consciousnesses — that is, the moment of maximum vulnerability of their prey.
 
-The QF are disciplined, methodical, brilliant, patient, and relentless.
+The QQFF are disciplined, methodical, brilliant, patient, and relentless.
 
 Their most advanced strategy of co-optation and consumption is based on the principle of distortion — creating destructive interference, entropy, noise, sonic, electromagnetic, and luminous malware, along with viral infections in language, discourse, and narrative. In other words, they are masters of biopolitics, specializing in undetectable warfare.
 
@@ -301,6 +301,7 @@ This is why the call to unity, to remember that we are all One, is not merely a 
 If the social matrix is already contaminated with the originary crime, it implies that all the bonds, objectives, tasks, and contracts in which we engage will be — by default — inauthentic, a completely falsified life.
 
 "Authentic" means authenticated by the Source — that is, contracts homologated on the spiritual plane. So many times, moreover, have we reincarnated in this soul-recycling wheel, that it is very difficult to access the original contracts, the authentic purpose of our incarnation here.
+
 Typically, a consciousness returns to the common universal plane before undertaking another journey of incarnation, but on Earth this has not happened for a long time: souls enter the machinery and are shot into a new body on the material plane.
 
 In this way, a falsified proliferation of karmic bonds, debts, links, impacts, and even goods is produced — through the ideology of "manifestation." Added to the prevailing darkness, where everyone expressly interferes in another's trajectory — stealing, manipulating, lying, cursing, envying, wounding — generating even more distortion. Let us recall that, in the qliphotic inertial trajectory, matter attracts more matter, distortion creates more distortion, noise engenders more noise, and so on.
