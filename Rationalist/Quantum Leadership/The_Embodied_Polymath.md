@@ -14,7 +14,7 @@ The problem in the new paradigm is no longer scarcity. It is abundance without o
 
 This book is the entryway for the one who already knows the past is toast and is seeking the new frame. It does not bootstrap. It does not remediate. The system is reorganizing at higher complexity: the dawn of a new civilization.
 
-Our framework is oriented towards High Civilization Engineering. This approach is coupled with a certain type of leader, the Embodied Polymath.
+Our framework is oriented towards High Civilization Engineering. This approach is coupled with a certain type of leader, the Embodied Polymath: not a generalist, not a *savant*, but an all-terrain Mystic with a STEM processor.
 
 ---
 
