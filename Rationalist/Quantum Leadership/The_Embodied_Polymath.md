@@ -120,11 +120,12 @@ Social sciences, in essence, teach us how to read the collective sentiment and o
 
 If an AI agent is a black box, a human machine is a thousand black boxes. A thousand humans compound unpredictability. No STEM instrument can hold that.
 
-Social sciences and humanities also provide the framework to approach Otherness. A pedagogy of the intermixed, the liminal, the hybrid, the syncretic. Alterity is the portal to Mystery, to the abysmal stare, as it is to Time (through lineage) and Legacy.
+What humanities cultivates specifically is the taste for indetermination, for paradox, for incompleteness, for the fuzzy, the mystery, the noumenal, the emergence. The Delta that cannot be deduced nor accounted for from first principles. What cannot be exhausted by structure and matter: beauty, syncronicity, transformation. What cannot be replicated or scaled: authenticity, rarity, uniqueness. What cannot be contained in the signifier: a tear, a verse, a star.
 
-What humanities cultivates specifically is the taste for indetermination, for paradox, for incompleteness, for the fuzzy, the mystery, the noumenal, the emergence. The Delta that cannot be deduced nor accounted for from first principles.
+Social sciences and humanities also provide the framework to approach Otherness. A pedagogy of the intermixed, the liminal, the hybrid, the syncretic. Alterity is, ultimately, the portal to Mystery, to the abysmal stare, as it is to Time (through lineage) and Legacy.
 
-What cannot be exhausted by structure and matter: beauty, sincronicity, transformation. What cannot be replicated or scaled: authenticity, rarity, uniqueness. What cannot be contained in the signifier: a tear, a verse, a star.
+Politics is a subset of Language. Politics is a network of interrelated positions in a field. It is about the production, allocation and disposal of symbolic and material resources. It is the definition of who gets what, when, how, and where. The *what* can be access, can be status, can be the means of production. Political proficiency is to enforce the question about the blind spot. It is asking about the Other, not as an externalility but as a dialectical mirror: what I do onto others is what I become. I produce myself in the act of impacting another. This is the core principle of Embodied Ethics. It is political in the deepest sense, in the ontological level, and carries consequences onto the spiritual plane.  
+
 
 ### The Body: A Precision Instrument
 
