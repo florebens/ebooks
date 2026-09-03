@@ -92,7 +92,7 @@ When active and free of distortion, the SB relieves the MB of its coordinating f
 
 ### The Psychon: Electrochemical Energy Coupled With Information
 
-What is the psychic flow made of? What exactly travels around the circuitry and gets packed, unpacked, enriched, flattened and stored? Meet the **Psychon**. It is a unit of an electrochemical bit coupled with a data bit, energy and information. A quantum superposition operating in less than a nanosecond, our minds and bodies processing terabytes of data just to break the diet, send the text, get one more squat.
+What is the psychic flow made of? What exactly travels around the circuitry and gets packed, unpacked, enriched, flattened and stored? Meet the **Psychon**. It is a unit of an electrochemical bit coupled with a data bit, energy and information. A quantum superposition operating in less than a nanosecond, our minds and bodies processing terabytes of data just to break the diet, send the text, get one more squat. This is Quantum Biology.
 
 The coupling and decoupling of the psychon has protocols and outcomes. If correctly processed, it shall produce a memory and bioavailable energy. If unsuccessful, it shall remain in the system clogging the drains and wearing down the machine.
 
