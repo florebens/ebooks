@@ -120,7 +120,9 @@ Social sciences, in essence, teach us how to read the collective sentiment and o
 
 If an AI agent is a black box, a human machine is a thousand black boxes. A thousand humans compound unpredictability. No STEM instrument can hold that.
 
-What humanities cultivates specifically is the taste for indetermination, for paradox, for incompleteness, for the fuzzy, the mystery, the noumenal, the emergence. The Delta that cannot be deduced nor accounted for from first principles. What cannot be exhausted by structure and matter: beauty, syncronicity, transformation. What cannot be replicated or scaled: authenticity, rarity, uniqueness. What cannot be contained in the signifier: a tear, a verse, a star.
+What humanities cultivates specifically is the taste for indetermination, for paradox, for incompleteness, for the fuzzy, the mystery, the noumenal, the emergence. 
+
+The Delta that cannot be deduced nor accounted for from first principles. What cannot be exhausted by structure and matter: beauty, syncronicity, transformation. What cannot be replicated or scaled: authenticity, rarity, uniqueness. What cannot be contained in the signifier: a tear, a verse, a star.
 
 Social sciences and humanities also provide the framework to approach Otherness. A pedagogy of the intermixed, the liminal, the hybrid, the syncretic. Alterity is, ultimately, the portal to Mystery, to the abysmal stare, as it is to Time (through lineage) and Legacy.
 
