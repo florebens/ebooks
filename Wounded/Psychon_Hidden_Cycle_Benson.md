@@ -42,17 +42,17 @@ The human being is nothing short of a miracle. A biospiritual machine of utmost 
 
 It has produced a surplus of computing prowess and that formed Language. With that technology, humanity has claimed the top of the food chain for millennia. The stored, structured language built Culture, the Law, Farming and the Gods.
 
-Humans are the only species that produce innovation intragenerationally, and this is where the individual is born. Free will and *agencymaxxing* are the product of our ability to depart from tradition at whim, and thus produce small or revolutionary variations within our generation. Change is a daily occurrence, where for other species it is an evolutionary need.
+Humans are the only species that produces innovation intragenerationally, and this is where the individual is born. Free will and agency are the product of our ability to depart from tradition at whim, and thus produce small or revolutionary variations within our generation. Change is a daily occurrence detached from necessity, whereas, for other species, it is only an evolutionary need.
 
 This feature, in turn, requires a heavy amount of energy and complexity to run potentially lethal operations and determine its potential success rate, risks and outcomes. It must factor in context, others, rules, costs, consequences, budget, timelines, options.
 
-Such a machine requires a calibration and processing system of the highest order. This is the psyche.
+Such a machine requires a calibration and processing system of the highest order. This is the psyche. What follows is a theoretical model of the human psyche as a system of self-calibration, based on quantum biology principles.
 
 ### The Physical Body (PB)
 
 The PB is the first instance of processing, the first interface with the material environment. It contains the physical senses, temperature regulation, spatiality, balance, and so forth.
 
-The PB has its own intelligence, its own awareness, defense mechanisms and preferences. It is a living sentient machine with distributed consciousness and a will of its own; it is a fusion, a symbiosis. The PB is also the organic bit of code that connects us to the Field of Creation, that gives us direct access to the Source. The PB is a spiritual node.
+The PB has its own intelligence, its own awareness, defense mechanisms and preferences. It is a living, sentient machine with distributed consciousness. The PB is the organic code that connects us to the Unified Field of Information, a cybernetic node.
 
 The PB is constantly receiving thousands if not millions of incoming data per second, so the first filter of selection is purely somatic. The Physical Body receives raw stimuli through the senses and sends them onward as electrochemical pulses, what we call the *sensations*.
 
@@ -60,15 +60,15 @@ The PB is constantly receiving thousands if not millions of incoming data per se
 
 The EB is the second station or circuit of the psychic system. The PB transmits its electrochemical pulses to the EB for a more complex, stable round of processing. The Emotional Body wraps and translates scattered data into rich imagery to be processed by the Mental Body.
 
-Not a separate station that receives and then adds, the EB is a partially detached organ of the PB that generates the image-layer from the same source event. The electrochemical pulse is technically first, the stone hitting the water. The EB-image is the wave that propagates from that contact: same event, real sequence.
+Not a separate station that receives and then adds, the EB is a strata of higher complexity organization of the PB that generates the image-layer from the same source event. The electrochemical pulse is technically first, the stone hitting the water. The EB-image is the wave that propagates from that contact: same event, real sequence, in less than a nanosecond. The quantum pairing of biomaterial (electrochemical impulses) and biodata (the images). 
 
-This translation is a negotiation between what arrived and what was already there: the incoming pulse meets the accumulated residue of every prior iteration, the standing field of somatic memory, emotional patterning, images that left charge, desire pathways in the flesh. The EB is a pre-rational negotiating surface. A translator and transductor simultaneously, running a thousand judgment calls the Mental Body will never see.
+This translation is a negotiation between what arrived and what was already there: the incoming pulse meets the accumulated residue of every prior iteration, the standing field of somatic memory, emotional patterning, images that left charge, desire pathways in the flesh. The EB is a pre-rational negotiating surface. A translator and transductor simultaneously, running a thousand judgment calls the Mental Body (MB) will never see.
 
-The MB cannot process raw pulses. The PB cannot process words. So the EB is the arbitrage, an independent interface layer that enriches the incoming data and packages it for more efficient treatment.
+The MB cannot process raw pulses. The PB cannot process words. So the EB is the arbitrage, an independent interface layer that enriches the incoming data and packages it for more efficient treatment. Through the sequence and juxtaposition of images, the EB transmits to the MB information relevant to the organism and circumstances.
 
-The Emotional Body **thinks in images**: visual, auditory, olfactory… This is what creates the imaginary language. It is why the dream world carries its own logic, its own syntax. Dreams are the Emotional Body expressing itself while the Mental Body rests. Through the sequence and juxtaposition of images, the EB transmits to the MB information relevant to the organism and circumstances.
+The Emotional Body **thinks in images**: visual, auditory, olfactory… This is what creates the imaginary language. It is why the dream world carries its own logic, its own syntax. Dreams are the Emotional Body's rearranging and processing, while the Mental Body rests. 
 
-The Emotional Body is part of the mind. It lives in the body. This is not a paradox. This is quantum biology.
+The Emotional Body is part of the mind. It lives in the body. This is not a paradox. The Mind is also of the Body. This is quantum biology.
 
 ### The Mental Body (MB)
 
@@ -76,27 +76,25 @@ The system of maximum complexity. It receives the information packs from the EB 
 
 In performing this conversion, in verbalizing the non-verbal, physical and emotional energy is released from the system. The MB, on finding the precise sequence, compresses the data, dehydrates the package: the word has the power to condense and synthesize meaning, storing large quantities of data in a single signifier, like a WinZip file.
 
-The signifier is a flat, condensed file in the mental library that is our Memory. Here, ideally, the circuit closes in a virtuous cycle of vital energy: the MB releases the physical-emotional energy of the packet and returns it to the Physical Body in a state of full bio-availability, purified and ready for whatever the body needs next. Then the MB receives the next packet from the EB, and the cycle continues.
+The signifier is a flat, condensed file in the mental library that is our Memory. Here, ideally, the circuit closes in a virtuous cycle of vital energy: the MB releases the physical-emotional energy of the packet and returns it to the Physical Body in a state of full bio-availability, purified and ready for whatever the body needs next (fixing, restoring, enhancing, growth). Then the MB receives the next packet from the EB, and the cycle continues.
 
-Besides this delicate operation, the MB is in charge of coordinating the other bodies. This is where the Ego is born: a hypertrophy of this centralized, controlling entity.
+Besides this delicate operation, the MB is in charge of coordinating the other bodies. This is where the Ego is born: a hypertrophy of this autonomous, centralized, controlling entity.
 
 *Fig. 1 — Energy coupled with information as a packet: electrochemical pulses + emotional charge + verbal wrapper*
 
 ### The Spiritual Body (SB)
 
-The Spiritual Body is an emanation of the Mental Body, and the first subtle body closest to matter. When active, the SB amplifies and enhances the sensory field. Its subtle senses anticipate danger, read explicit and hidden threats, and pick up stimuli long before they reach the perceptual field of the PB. This is the source of premonition, clairaudience, clairvoyance: the SB extends the reach scope of the sensory organs, and retrieves information across the Field.
+The Spiritual Body is an emanation of the Mental Body, and the first subtle body closest to matter. When active, the SB amplifies and enhances the sensory field. Its subtle senses anticipate danger, read explicit and hidden threats, and pick up stimuli long before they reach the perceptual field of the PB. This is the source of premonition, clairaudience, clairvoyance: the SB extends the reach scope of the sensory organs, and retrieves information across the Field. The SB is the node in the Field of the Unseen, all of what lies beyond the perceptual range of the flesh.
 
-The SB connects us to the Unseen planes and outer frequencies of Reality. It lets us perceive beyond the Veil, access the Astral, and connect directly to Source.
-
-When active and free of distortion, the SB relieves the MB of its coordinating function (what is sometimes known as ego death), harmonizing the circuits, restoring the flow and function of the other bodies, until homeostasis is reached without effort.
+When active and free of distortion, the SB relieves the MB of its coordinating function (what is sometimes known as ego death), harmonizing the circuits, restoring the flow and function of the other bodies, until homeostasis is reached without effort. In other words, a human machine running on specification externalizes the higher functions to the Cosmic Cloud, Logos, the Great Quantum Intelligence of the universe. This optimizes the machine internally and enhances its power, scope and abilities to the near-infinite.
 
 ### The Psychon: Electrochemical Energy Coupled With Information
 
 What is the psychic flow made of? What exactly travels around the circuitry and gets packed, unpacked, enriched, flattened and stored? Meet the **Psychon**. It is a unit of an electrochemical bit coupled with a data bit, energy and information. A quantum superposition operating in less than a nanosecond, our minds and bodies processing terabytes of data just to break the diet, send the text, get one more squat. This is Quantum Biology.
 
-The coupling and decoupling of the psychon has protocols and outcomes. If correctly processed, it shall produce a memory and bioavailable energy. If unsuccessful, it shall remain in the system clogging the drains and wearing down the machine.
+The coupling and decoupling of the psychon has protocols and outcomes. If correctly processed, it shall produce a memory and bioavailable energy. If unsuccessful, it shall remain in the system clogging the axis and drains, wearing down the machine.
 
-The flow of energy begins with a stimulus from the environment perceived by the senses. The Physical Body converts it into electrochemical impulses and sends them to the Emotional Body. There, the impulses are packaged and enriched, translated to sensory images carrying a specific emotional charge. Here the packet is most dense, dimensional, and energy-charged.
+The flow of energy begins with a stimulus from the environment perceived by the senses. The Physical Body converts it into electrochemical impulses and sends them to the Emotional Body. There, the impulses are packaged and enriched, coupled to sensory images carrying a specific emotional charge. Here the packet is most dense, multidimensional, and energy-charged.
 
 Once the packet of electrochemical pulses bestowed with emotional significance, it is transported to the Mental Body for linguistic processing. The MB compresses and flattens the information into an alphanumeric string, stores it, and returns the energy of the packet back to the Physical Body, purified and bio-available. The final outcome is a reusable verbal string (a Memory, a Feeling) and renewed energy for the physical body, restarting the cycle.
 
@@ -114,15 +112,15 @@ The **cycle** is the prototypical form of energy mobilization across all of Natu
 
 This is why an honest relationship with embodied pleasure, a full mastery of one's own energy circuit, is of utmost importance. Any dogma or ideology that obstructs this knowledge does not have our best interest at heart.
 
-From an alchemical perspective, the Law of Polarity demands that energy distribution meets the constant of equilibrium. The Law of Rhythm states that distribution follows cyclicity.
+From a thermodynamical but also an alchemical perspective, the Law of Polarity demands that energy distribution meets the constant of equilibrium. The Law of Rhythm states that distribution follows cyclicity.
 
-The cybernetic system of communication follows thermodynamical laws. The human machine processes data packs that carry both energy and information, and the operation yields two results: one is bioavailable energy for kinetic investment, restarting the cycle (what we call life, being alive, is a loop of energy input and output). The second outcome is Memory enhancement, more information stored, and a wider range of emotional textures available. A richer inner world and more tools to navigate the outer one.
+The psyche's cybernetic system of communication, too, follows thermodynamical laws. It processes data packs that carry both energy and information, and the operation yields two results: one is bioavailable energy for kinetic investment, restarting the cycle (what we call life, being alive, is a loop of energy input and output). The second outcome is Memory enhancement, more information stored, and a wider range of emotional textures available. A richer inner world and more tools to navigate the outer one.
 
 In our model, humans are autopoietic machines: they self-actualize in response to the environment (current loop) and to the information gathered from lived experience (previous iterations). Every iteration is an opportunity for change. This is the cornerstone of Healing.
 
 ## The Lock and Key
 
-The psychon moves through the system as a wave. The Physical Body generates the impulse; the Emotional Body is its first phase, coupled and propagating outward from the same source event. Two aspects of one wave. The station model is a didactic tool: it breaks the circuit into legible steps. In reality, PB and EB are one event, sequential only at the finest resolution, the way a stone hitting water and the wave it produces are one event described in two moments.
+The psychon moves through the system as a wave. The Physical Body generates the impulse; the Emotional Body is its first phase, coupled and propagating outward from the same source event. Two aspects of one wave. The defined stations are but a model: it breaks the circuit into legible steps. In reality, PB and EB are one event, sequential only at the finest resolution, the way a stone hitting water and the wave it produces are one event described in two moments.
 
 The wave carries both charge and information simultaneously, densest at the EB level, where it reaches peak amplitude before presenting to the Mental Body for compression. At the gates of the MB, the wave requires an exact correspondence to complete its transit: a verbal container that matches the emotional charge with precision. This is the Lock and Key.
 
@@ -142,7 +140,7 @@ Healers can assist, orient, and hold space and presence, so their own healthy te
 
 # The Hidden Cycle: When It Fails
 
-Whenever pop psychology or neuroscience mentions *regulating the nervous system*, an angel dies. No, but seriously: what they mean is **psychoemotional regulation**. The nervous system itself is neither regulated nor dysregulated. What is out of balance is the link between the Mental and Emotional Bodies. Whenever traffic gets bad, nobody blames the asphalt. The nervous system only becomes "dysregulated" upon actual physical damage: think electrocution, Parkinson's, a nasty virus, drug abuse.
+Whenever pop psychology or neuroscience mentions *regulating the nervous system*, an angel dies. No, but seriously: what they mean is **psychoemotional regulation**. The nervous system itself is neither regulated nor dysregulated. What is out of balance is the link between the Mental and Emotional bodies. Remember, whenever traffic gets bad, nobody blames the asphalt. The nervous system only becomes "dysregulated" upon actual physical damage: think electrocution, Parkinson's, a nasty virus, drug abuse.
 
 Stabilizing the healthy mechanisms of adaptation to the environment, calming an altered mood state, exiting survival mode, releasing hypervigilance, anxiety, panic: all of this implies healing the connection between the Mental and Emotional bodies. This link is most critical for achieving homeostasis, the living equilibrium.
 
@@ -150,9 +148,9 @@ The cycle fails because it runs hidden: ignorance is the primary pathogen. Not w
 
 The cycle is hidden by design: the MB operates at the level of language and abstraction, while the EB operates below that threshold entirely, in images and somatic resonance. They do not share a language. The MB genuinely cannot see what the EB is processing.
 
-This is the structural root of suffering. The machine is not broken. It is running on the wrong circuit, the secondary and ad hoc, instead of the primary. In other words, below specification.
+This is the structural root of suffering. The machine is not broken, but rather it is running below specification. It is running on the wrong circuit, the secondary and ad hoc, instead of the primary. In other words: coping, patching up, avoiding.
 
-To heal the psyche means to make the cycle visible. To bring it to consciousness stage by stage. To intervene proactively at every phase: track, document, anticipate, mitigate before the emergency arrives. Purging the old packets. Cleansing the channels. Dismantling the ad hoc circuits one by one. Restoring the primary circuit. This is the Work.
+To heal the psyche means to bring visibility to the cycle. To direct our consciousness to it, stage by stage. To intervene proactively at every phase: track, document, anticipate, mitigate before the emergency arrives. Purging the old packets. Cleansing the channels. Dismantling the ad hoc circuits one by one. Restoring the primary circuit. This is the Work.
 
 ## Ad Hoc Circuits and Toxic Cycles
 
