@@ -50,7 +50,7 @@ Brilliant, often, in their domain. Completely insulated from friction by money a
 
 The ego is the main liability of the human machine. It is the calcified Shadow of our inner child — all of the things left unsaid, unprocessed, uncomprehended when we were little. The EP is born when the ego is matured, transformed into a Self. The Identity — the mask and costume of the ego cosplaying as an adult — is then dissolved. The Matrix has thus lost its grip on the emancipated node. Detachment unlocked.
 
-The privileged, profound disconnection from the substrate of reality is also a liability: one cannot understand economy or elegance if constraint has been engineered out of the environment. One cannot appreciate logistics without friction. One cannot model actual pain points if said models have a systematic blind spot right at the base. And. It. Shows — in the policies, in the products, in the social awkwardness.
+The privileged, profound disconnection from the substrate of reality is also a liability: one cannot understand economy or elegance if constraint has been engineered out of the environment. One cannot appreciate logistics without friction. One cannot model actual pain points if said models have a systematic blind spot right at the base. And. It. Shows — in the policies, in the products, in the cope.
 
 Privilege breeds incompetence unless countered with actual craft, the swordsmith's sense of service and quiet devotion. It should be very hard to board the EP train with a first-class ticket.
 
@@ -66,7 +66,7 @@ No task is below them, nothing is beyond scope. No issue is trivial. The EP is f
 
 Quantum Leadership is about range, full scope and depth. Not micromanaging but floating attention, discerning signal from noise. Focus on Optimization and flow, rather than measurements and benchmarks.
 
-An EP is comfortable in combat and in the routine, in the astral and the ordinary, in heaven and in hell. Everything is handled immediately and with grace, resolved above standard, closed and archived.
+An EP is comfortable in combat and in the routine, in the astral and the ordinary, in heaven and in hell. Everything is handled immediately and with grace, resolved above standard, closed and archived on the spot.
 
 ---
 
@@ -110,7 +110,7 @@ The EP runs three parallel processing systems. These are not tools for producing
 
 STEM provides integrity, accuracy, symmetry, continuity, optimization, automation. It is the domain of rigor applied to systems that do not care whether you understand them. It produces reliable models of how things actually work, stripped of projection and wishful thinking.
 
-### Humanities and Arts: The Other Processor
+### Humanities and Arts: The Taste Processor
 
 Humanities and social sciences are not the soft counterweight to STEM's hardness. They are a different epistemological category entirely — a parallel peak of knowledge with their own formal grammar, their own logic, their own precision. These are trainable, improvable, testable skills. Not vibes.
 
@@ -126,7 +126,7 @@ What humanities cultivates specifically is the taste for indetermination, for pa
 
 What cannot be exhausted by structure and matter: beauty, sincronicity, transformation. What cannot be replicated or scaled: authenticity, rarity, uniqueness. What cannot be contained in the signifier: a tear, a verse, a star.
 
-### The Body: Precision Instrument
+### The Body: A Precision Instrument
 
 The body is the third processor, highly calibrated by the EP's intimate operational knowledge of how to get it to work to specification, through steady maintenance and consistency.
 
