@@ -276,7 +276,7 @@ This surplus of energy is what turns a circle into a loop, a descending spiral: 
 
 This cyclical nature also shows up in interpersonal bonds, particularly codependent and abusive ones. Before the discharge (the blow, the shouting: expansion), the system requires an accumulation of energy, tension (contraction), worked out by both parties through dynamics that get unconsciously refined over time.
 
-The victim, it's worth noting, is in fact a co-creator, making up fifty percent of the system that oppresses them, however unconsciously, because they have not yet integrated their own Shadow's addiction to violence.
+The victim, it's worth noting, is in fact a co-creator, making up fifty percent of the system that oppresses them, however unconsciously, because they have not yet integrated their own Shadow's addiction to violence. (The material constraints and structural inequalities notwithstanding; the present case is expressed as an illustration point of the psychological dynamic, where the theoretical victim does have means of starting a life without the abuser. We acknowledge that this is not the case in real life, most of the time.)
 
 The narcissist, for their part, is a being of phenomenal empathy, which is exactly what makes them such an expert manipulator: empathy is but a neuronal function. Empathy does not imply compassion. It is a neurological skill in service of survival, an adaptive advantage.
 
