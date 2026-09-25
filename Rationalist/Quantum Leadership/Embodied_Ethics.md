@@ -1,6 +1,6 @@
 # Embodied Ethics. Ontological Risk And The Positioning Against Evil
 
-## Florencia Benson
+## Florence Benson
 ### *Shevirat, 2026*
 -----
 
