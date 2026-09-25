@@ -3,7 +3,7 @@
 ### Terminal Risk, Consciousness, and the Case for Carbon-Based Enhancement  
 
 
-## By Florencia Benson  
+## By Florence Benson  
 
 ### 2026
 
