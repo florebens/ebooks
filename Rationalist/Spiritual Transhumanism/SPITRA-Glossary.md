@@ -1,6 +1,6 @@
 # SPITRA Vocabulary & Conceptual Glossary
 
-*Shevirat. Florencia Benson, 2026. CC BY 4.0*
+*Shevirat. Florence Benson, 2026. CC BY 4.0*
 
 ---
 
