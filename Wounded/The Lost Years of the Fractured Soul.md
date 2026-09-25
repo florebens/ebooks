@@ -1,6 +1,6 @@
 # The Lost Years of the Fractured Soul
 ## Depression, Addiction, Depersonalization and the Spiritual Plane
-### By Florencia Benson
+### By Florence Benson
 ### *Shevirat, 2026*
 
 
