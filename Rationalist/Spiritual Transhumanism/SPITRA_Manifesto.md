@@ -30,9 +30,9 @@ Holiness, illumination, is not something optional to perhaps pursue but, rather,
 
 Indeed, rather than enhancing the caterpillar, SPITRA acknowledges the need to first complete the metamorphosis process as inscribed in the Human Template. Actualizing this information will then provide the correct infrastructure to immortalize; a Diamantine Butterfly, as opposed to a cybernetic worm.
 
-The Immortality claim of SPITRA, therefore, is not through offloading some mysterious qualia to some artificial cloud or vessel; but through the Portal of Death and Resurrection. The Death that we know today, the path towards trascendance we are acquainted with, is not the only form of Death possible. 
+The Immortality claim of SPITRA, therefore, is not through offloading some mysterious qualia to an artificial cloud or silica vessel; but through the Portal of Death and Resurrection. The Death that we know today, the path towards transcendence we are acquainted with, is not the only form of Death possible. 
 
-There is also an Art and Science of Dying. This is Alchemy. The human vessel is meant to be transformed —through the Death and Rebirth process— into an immortal new being, the Neonate (see *Innate, Nonate, Neonate*): not the ordinary, dormant human seed, not the etheric soul that survives material death, but a new category altogether, the dialectical, succesful integration and sublimation of the Matter and the Light.
+There is also an Art and Science of Dying and returning—to the same vessel, to the same timeline, holding the infinite power of the Divine Incarnate. This is Alchemy. The human vessel not only holds the capacity, it is actually *meant* to undergo a metamorphosis —through the Death and Rebirth process— into an immortal new being, the Neonate (see *Innate, Nonate, Neonate*): far from the initial, dormant human seed; not the etheric soul that survives material death, either; but a new category altogether, the dialectical, succesful integration and sublimation of the Matter and the Light.
 
 *Shevirat hakelim*: not a broken vessel and discarded fragments of light, but the Crystalline Body bursting, fully formed, from its material pod, tall and true. The human template no longer asleep and exploited but activated, glorious, sovereign: the divine incarnate.
 
