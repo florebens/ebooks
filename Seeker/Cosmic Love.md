@@ -1,7 +1,7 @@
 # COSMIC LOVE
 ### *Incarnation, Ascension and The Great Transition: a Crossroad*
 
-### **By Florencia Benson**
+### **By Florence Benson**
 ### *2026*
 
 ---
