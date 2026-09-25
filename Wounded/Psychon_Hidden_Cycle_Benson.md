@@ -2,7 +2,7 @@
 
 *A Systemic Model of the Human Psyche*
 
-Florencia Benson
+Florence Benson
 
 *Shevirat, 2026*
 
