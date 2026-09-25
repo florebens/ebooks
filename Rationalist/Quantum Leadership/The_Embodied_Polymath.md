@@ -2,7 +2,7 @@
 
 *Guidelines for the Post-Singularity Individual*
 
-Florencia Benson, Shevirat ©2026
+Florence Benson, Shevirat ©2026
 
 ---
 
