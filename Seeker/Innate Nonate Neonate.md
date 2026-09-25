@@ -1,6 +1,6 @@
 # The Soul's Trajectory: Innate, Nonate, Neonate
 
-## Florencia Benson
+## Florence Benson
 ### *Shevirat, 2026*
 
 ---
