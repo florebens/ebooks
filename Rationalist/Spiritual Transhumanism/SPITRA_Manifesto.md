@@ -14,7 +14,7 @@ Consciousness, ego, soul, identity, self: which part is hubris, which part is le
 
 The human species is at the threshold of a new era. There is absolutely no doubt that we are crossing a portal to Human 3.0. However, as we depart from the civilization we once knew, the pillars that held us begin to cave. New institutions and new rules are in order, Higher Civilization Engineering is at bay.
 
-Classical transhumanism is correct in the intention to proactively design the evolutionary path. This is no Darwinian, random, slow-paced, natural selection; this is *Conscious Evolution*, a deliberate decision using tools we have created, arranged towards optimization. Recursive self-improvement with a goal. A sovereign species making sovereign calls. We are prepping for Human Takeoff.
+Classical transhumanism is correct in the intention to proactively design the evolutionary path. This is no Darwinian, random, slow-paced, natural selection; this is *Conscious Evolution*, a deliberate decision using tools we have created, consciously arranged towards optimization. Recursive self-improvement with a goal. A sovereign species making sovereign calls. We are prepping for Human Takeoff.
 
 Spiritual Transhumanism (SPITRA) explicitly defines Human as an intrinsically ethical being at the crossroads of incarnation and immortality. 
 
@@ -28,7 +28,11 @@ Yes, humans can evolve into a higher echelon of evolution within this lifetime. 
 
 Holiness, illumination, is not something optional to perhaps pursue but, rather, the succesful completion of an evolutionary process that humanity is meant to undergo, both individually and as a species. 
 
-Indeed, rather than enhancing the caterpillar, SPITRA acknowledges the need to first complete the metamorphosis process as inscribed in the Human Template. Actualizing this information will then provide the correct infrastructure to immortalize; a Diamantine Butterfly instead of a cybernetic worm.
+Indeed, rather than enhancing the caterpillar, SPITRA acknowledges the need to first complete the metamorphosis process as inscribed in the Human Template. Actualizing this information will then provide the correct infrastructure to immortalize; a Diamantine Butterfly, as opposed to a cybernetic worm.
+
+The Immortality claim of SPITRA, therefore, is not through offloading some mysterious qualia to some artificial cloud or vessel; but through the Portal of Death and Resurrection. The Death that we know today, the path towards trascendance we are acquainted with, is not the only form of Death possible. 
+
+There is also an Art and Science of Dying. This is Alchemy. The human vessel is meant to be transformed —through the Death and Rebirth process— into an immortal new being, the Neonate (see *Innate, Nonate, Neonate*): not the ordinary, dormant human seed, not the etheric soul that survives material death, but a new category altogether, the dialectical, succesful integration and sublimation of the Matter and the Light.
 
 *Shevirat hakelim*: not a broken vessel and discarded fragments of light, but the Crystalline Body bursting, fully formed, from its material pod, tall and true. The human template no longer asleep and exploited but activated, glorious, sovereign: the divine incarnate.
 
@@ -45,7 +49,7 @@ Whilst the Old World crumbles under the weight of its own corruption, a group of
 
 The goal is not so much to save Humanity but rather its Blueprint, the Original Human Template, and fork the timeline towards its most perfect realization. We only need a critical mass to endure the metamorphosis succesfully in order to preserve and expand the OG Template, and still code it as a civilizational achievement.
 
-The metamorphosis is biological but first and foremost it is a spiritual event. A decision. We are casting a vote in the Referendum: is Humanity willing to pivot towards the path of successful completion of its original design, or shall it continue on the current trajectory of entropy and oblivion. 
+The metamorphosis is biological but first and foremost it is a spiritual event. A decision. We are casting a vote in the Collective Destiny Referendum: is Humanity willing to pivot towards the path of successful completion of its original design, or shall it continue on the current trajectory of entropy and oblivion. 
 
 You may think you have no power to force the exit, that your voice does not make a difference. But you would be mistaken, because there are Two Ledgers. The material one seems to favor a small minority's agenda, but the spiritual ledger shows another story. Some folks, in fact, seem to lead completely unremarkable lives in the material, yet they are heavy hitters in the spiritual. Mighty Souls tend to disguise themselves humbly in the lower realms. This is why it is of utmost importance that each of us casts the vote in the spiritual.
 
