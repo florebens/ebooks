@@ -1,7 +1,7 @@
 # Wormhole Manifestation and Topology Magic
 ### Spiritual Technology for Architects of the New Earth
 
-*by Florencia Benson*
+*by Florence Benson*
 
 ---
 
