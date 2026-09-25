@@ -2,7 +2,7 @@
 
 ### *Productive Psychosis, Shamanic OS and Endurance in the Ontological Desert*
 
-**Florencia Benson**
+**Florence Benson**
 Shevirat, 2026
 
 ---
