@@ -1,6 +1,6 @@
 # MERKABA: VEHICLE OF LIGHT
 
-**By Florencia Benson**  
+**By Florence Benson**  
 
 *Shevirat, 2026*
 
