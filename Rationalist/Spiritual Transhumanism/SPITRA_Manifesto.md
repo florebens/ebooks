@@ -1,6 +1,6 @@
 # Spiritual Transhumanism Manifesto 
 
-### *By Florencia Benson, Shevirat, 2026*
+### *By Florence Benson, Shevirat, 2026*
 ---
 
 
