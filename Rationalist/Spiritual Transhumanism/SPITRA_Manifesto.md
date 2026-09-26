@@ -68,7 +68,7 @@ All the chaos and saturated darkness are but the perfect opportunity for the Alc
 It is no small feat what we are about to endure. The challenge is facing us squarely, and we must rise to the occasion with maturity, faith and courage. We did not come here to fail, we did not come here to go back to where we came from. We are here to prevail, to thrive and to expand the Glory of the Creator. And so it is. 
 
 
-# The Yang Revolution and Ontological Exodus
+# The Yin Revolution and Ontological Exodus
 
 This is a time to fixate on expansion, resilience, creativity and joy.
 
