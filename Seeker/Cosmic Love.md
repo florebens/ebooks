@@ -30,14 +30,13 @@ This path leads, therefore, to an amphibious, quantum, indeterminate, paradoxica
 
 In *Cosmic Love*, finally, we will see the complete picture of our place in Creation and the crucial moment our world is traversing — that is, the Great Evolutionary Transition of the species and of Gaia. We want to identify our coordinates in the grand scheme of things: where we are, what is happening, and where we are going; to elaborate a framework of meaning that provides clarity, strategy, and serenity in moments of saturated darkness, symbolic anemia and maximum anomie.
 
-We will also explore the role of the critical mass needed to consider an evolutionary leap, not of a few individuals, but of a new species: Humanity 3.0 is ripe to be born, to accomplish its transformation successfully.
+We will also explore the role of the critical mass needed to consider an evolutionary leap, not of a few individuals, but of a new species: Humanity 3.0 is ripe to be born, the conditions are in place to accomplish the transformation successfully.
 
-It is understandable that, upon first encountering the events about to unfold in the near future (over the course of some decades), one might feel anxiety, fear, angst. 
+The first order of business during the Event is to remain calm, present, grounded and *online*. Fear is the only enemy, the real threat. Facing reality soberly, on the other hand, enables preparation, a sensible plan to address it. Activating the Shamanic OS, the proper gear to navigate the systemic collapse of the old reality, is the way to go.
 
-First of all, this is always better than choosing denial or hypernormalization; facing reality soberly enables preparation, a sensible plan to address it. Second, the response to this anxiety is very simple: keep calm and carry on. Faced with the advent of a massive, overwhelming, destructive event, the appropriate response will be to unfold temporality so as to inhabit the present deliberately, consciously, and serenely, without falling into cognitive dissonance or despair.
+This is the time of the **Yin Revolution** (see *SPITRA Manifesto*), where a highly advanced cohort of souls take over the ontological project of humanity in order to divert it towards a forked timeline, the one that leads to its perfect realization. 
 
-Ultimate wisdom consists in opposing an external event that surpasses oneself with the opposite internal reaction: calm, continuity in daily structure, balance, inner peace. Transforming the prosaic into sacred ritual. Expanding the inner space so that it equals or surpasses the outer.
-The spiritual path — or wild epistemology — provides us with the ability to hold both extremes of a proposition, without collapsing one or the other, without foreclosing meaning. Holding the paradox with serenity, stability, effortlessly.
+The designated souls shall remain anchored in the 5D whilst conducting their ordinary business. The Community of Sovereign Souls (CSS) does not flee from reality, but rather doubles down on their firm standing. The predisposition is of soldier monks, militant ascets, radiant lethal lotuses.
 
 For the humble, everything is as it should be. Life is a loan, incarnation a rental. The stoic preserves their unshakable core while the context crumbles.
 
