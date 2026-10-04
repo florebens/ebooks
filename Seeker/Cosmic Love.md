@@ -211,9 +211,9 @@ But it is also true that there is active, enthusiastic consent from vast sectors
 
 Consent is the foundation of the Cosmos, the governing principle of Maat, the set of universal laws. Creatures are endowed with free will, as we said, to choose their path of ascension or descent, to make sovereign decisions about their becoming, their role and impact in the created universe. The Work is thus a co-creation between God and consciousness. All events are a dance in two steps, a proposal and its response, an action and a reaction.The QF take and perfect the techniques of Darkness to falsify consent — from CNC (non-consensual consent), the negative priming and the black mass; the ritual of updating self-destruction is present in the background of social life, like a stereogram.
 
-All great Western thinkers from industrial capitalism onward, without exception, detect an oppressive force greater than the individual and greater than the collective, society. All of them infer from their observations, investigations, and analyses an autonomous force — a malevolent collective egregore of our own manufacture, alive, autonomous, and out of control: a Frankenstein.
+All great Western thinkers from industrial capitalism onward, without exception, detect an oppressive force greater than the individual and greater than the collective, than society or the government or religion. All of them infer, from their observations, investigations, and analyses, a supernatural force, a malevolent collective egregore of our own manufacture, alive, autonomous and out of control.
 
-They have left clues throughout their work (we will highlight the focal points to sketch the image; the reader may connect the dots on their own):
+Knowing that claiming the existence of something of this nature, although irrefutable, would be poorly received by the leaders of their time, they have resorted to seeding clues throughout their work (we will highlight the focal points to sketch the image; the reader may connect the dots on their own):
 
 * Marx: alienation — why did he use that specific word? He could have used expropriation, confiscation, any other term.
 * Freud: the unconscious (and the set of concepts of repression, projection, displacement) — our inner resources are alienated, co-opted; there is an essential part of us that is held captive, nullified.
@@ -228,6 +228,7 @@ With this expanded list of *the masters of suspicion*, we can see how the differ
 All of this reinforces the deep, existential denial of the truth.
 
 Thus, individuals entrench themselves in esoterphobia (see *Wild Epistemologies*) because otherwise, what is at risk is not only emotional stability, psychological security, or identity: what is risked is the Abyss, the ontological exposure, the desert of the Real.
+
 Cognitive dissonance is therefore verified as the forceps of the industrial soul-recycling system. Social life is the funnel of logical fallacies that ensures its continuity — a potent vortex of conformist inertia and control that pulls consciousnesses toward density and Nothingness.
 
 Ontophobia may emerge here as the extreme reaction: the terror not of death, but of *being* — the dread of one's own existence, of the void behind the mask, of waking up in full ontological exposure without the scaffolding of the Simulacrum to hold it.
@@ -236,7 +237,7 @@ Ontophobia may emerge here as the extreme reaction: the terror not of death, but
 
 # The Great Transition
 
-We are facing the first stages of a systemic collapse. A full economic, social, biological and technological reset. Slowly at first, then all at once, as Hemingway aptly described a snowballing crisis. These forces are inherently driven, but the origin is the spiritual backlog of the world. Indeed, the material collapse is the material manifestation of the karmic ecosystem implosion: the millenia of false identities, false contracts, false manifestations, false lifetimes that are produced and reproduced in the false matrix. Density births more density until it collapses, like a black hole. This is the trajectory of every Qliphotic colony, as parasitism is never sustainable but inherently entropic. 
+We are facing the first stages of a systemic collapse. A full economic, social, biological and technological reset. Slowly at first, then all at once, as Hemingway aptly described a snowballing crisis. These forces are inherently driven, but the origin is the spiritual backlog of the world. It is a spiritual event. Indeed, the material collapse is the manifestation of a karmic ecosystem implosion: the millenia of false identities, false contracts, false manifestations, false lifetimes that are produced and reproduced in the false matrix. Density births more density until it collapses, like a black hole. This is the trajectory of every Qliphotic colony, as parasitism is never sustainable but inherently entropic. 
 
 The Qliphotic agents are therefore preparing their final act for Earth, this is true. The maximum anomie and symbolic anemia are designed to perpetrate a controlled demolition that appears chaotic, in order to overdrive the limbic and cognitive system at once, paralyzing the prey for final extintion. People will have no register of the critical moment they are traversing, or how to properly navigate it, or even become aware of truly what is at stake.
 
