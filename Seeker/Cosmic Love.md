@@ -18,7 +18,7 @@ In *Wild Epistemologies* (WIEP), we saw the need to make our framework of meanin
 
 Some call this the simulation or Matrix but, for the ancients, Maya is a prior and broader interface — the Earth's firmware — which includes things like the natural world, cosmology, and Mystery. The current Matrix, by contrast, could be identified as yet another layer of simulation, a wrapper only a few millennia old. A matrix within another matrix, if you will.
 
-Therefore, to navigate today in the open waters of the Real — on the other side of the simulation's borders — without collapsing one's sanity, a robust symbolic toolkit is required, as well as considerable psychic stamina or resilience, and, finally, a generous measure of faith.
+Therefore, to navigate today in the open waters of the Real, on the other side of the simulation's borders, without collapsing one's sanity, a robust symbolic toolkit is required, as well as considerable psychic stamina, resilience, and, finally, a generous measure of faith.
 
 Faith is indispensable because it contains hope, that is, the trust that a luminous future can emerge from a bleak present. Faith introduces into our field the possibility of something greater and more powerful than oneself, which guides and accompanies a path that seems impossible from the subject's point of view but is good and necessary in the grand scheme of things.
 
@@ -38,7 +38,7 @@ This is the time of the **Yin Revolution** (see *SPITRA Manifesto*), where a hig
 
 The designated souls shall remain anchored in the 5D whilst conducting their ordinary business. The Community of Sovereign Souls (CSS) does not flee from reality, but rather doubles down on their firm standing. The predisposition is of soldier monks, militant ascets, radiant lethal lotuses.
 
-For the humble, everything is as it should be. Life is a loan, incarnation a rental. The stoic preserves their unshakable core while the context crumbles.
+For the humble, everything is as it should be. Life is a loan, incarnation a rental. The stoic preserves the unshakable core while the context crumbles.
 
 The monk laughs in the eye of the firestorm.
 
@@ -46,13 +46,13 @@ The only error is to panic, take extreme measures, lose one's head.
 
 The deadly trap of the belief-function is the self-fulfilling prophecy.
 
-In the world of the initiated, expectation does not dictate actions.
+In the world of the initiated, expectation does not dictate action.
 
-That is, reaction is not a necessary consequence: a robust psyche will create the pause, the hiatus, will hold the space in order to respond without reacting. It will absorb the data and allow the conclusion to form on its own, with time, while continuing with its daily work. Even once a response has consolidated, it will only hold it as provisional and maintain systematic doubt, receive more data, keep searching.
+In other words, reaction is not a necessary consequence: a robust psyche will create the pause, the hiatus, will hold the space in order to respond without reacting. It will absorb the data and allow the conclusion to form on its own, with time, while continuing with its daily work. Even once a response has consolidated, it will only hold it as provisional and maintain systematic doubt, receive more data, keep searching.
 
 For the wise, nothing is definitive, absolute, or terminal.
 
-The liberated consciousness, even when confronted with a massive, profound, serious, even tragic truth — such as civilizational and environmental collapse — observes everything and remains calm. It knows how to contemplate the phenomenon with detachment and acceptance, but it does not resign itself: from chaos it creates the miracle.
+The liberated consciousness, even when confronted with a massive, profound, serious, even tragic truth, such as civilizational and environmental collapse, observes everything and remains calm. It knows how to contemplate the phenomenon with detachment and acceptance, but it does not resign itself: from chaos it creates the miracle.
 
 One must alchemize the premises in the inner cauldron, with much meditation, practice, and art. Once the miracle is ripe on the spiritual plane, the sage materializes it, ushers it into the world. This energetic child, with the appropriate care, will rewrite the source code of the matrix — bending the spoon, the child, the screen, and the film.
 
