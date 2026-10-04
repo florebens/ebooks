@@ -236,8 +236,23 @@ Ontophobia may emerge here as the extreme reaction: the terror not of death, but
 
 # The Great Transition
 
-We are facing the first stages of a systemic collapse. A full economic, social, biological and spiritual reset. xxx
+We are facing the first stages of a systemic collapse. A full economic, social, biological and technological reset. Slowly at first, then all at once, as Hemingway aptly described a snowballing crisis. These forces are inherently driven, but the origin is the spiritual backlog of the world. Indeed, the material collapse is the material manifestation of the karmic ecosystem implosion: the millenia of false identities, false contracts, false manifestations, false lifetimes that are produced and reproduced in the false matrix. Density births more density until it collapses, like a black hole. This is the trajectory of every Qliphotic colony, as parasitism is never sustainable but inherently entropic. 
 
+The Qliphotic agents are therefore preparing their final act for Earth, this is true. The maximum anomie and symbolic anemia are designed to perpetrate a controlled demolition that appears chaotic, in order to overdrive the limbic and cognitive system at once, paralyzing the prey for final extintion. People will have no register of the critical moment they are traversing, or how to properly navigate it, or even become aware of truly what is at stake.
+
+A bond crisis, a debt crisis, stock market manipulation, carry trade and crazy rates, it is all designed to make the financial system snap. Meanwhile, the oil, diesel, fertilizers shortages, the middle eastern logistics chain interrupted, refineries blown up all over the world. The climate crisis with 2026 El Niño as poster child of tipping point exposure. stacking up on job market collapse, consumer sentiment, housing, and overall real economy in the same trajectory. On top of this, the threat of alien disclosure, a new pandemic outbreak seeping through every week, fascist regimes popping up like mushrooms after the storm. Then, there is the deepfakes, the misinformation, the fake news, and on top of that the AI multiple fronts: it comes for our jobs, it comes to surveill us, it comes to become our new god. 
+
+The material chaos is but the tactic, the strategic goal is a full-blown cognitive crisis. An epistemic saturation so dense, a mind so fragmented and a heart so heavy that it is virtually impossible to make sense of the present moment. Reality is replaced with a model, an outdated one at that: hypernormalization. People navigate the 2020's world like it's the 1990's.
+
+Of course, none of it is sustainable. That is the point. Implosion is inevitable.
+
+However, as the Qliphotic Forces have their agenda, so does the Light.
+
+A cohort of advanced souls has incarnated as humans at this time in order to take on the human ontological project and see it through, towards its most luminous resolution. Note that this fork is only made viable because the darkness is so saturated; so, in a sense, the QQFF are rendered instrumental in the Divine Plan. This is pure Logos logic — not undoing, not blocking, but integrating, sublimating, dialectically transforming. Alchemy of the highest order, in short. 
+
+These Souls, the Diamantine Order, the Collosi, the Leaders of the Community of Sovereign Souls, have the mission to fork the current timeline towards the most brilliant outcome, the Advanced Civilization of Humanity. They come with blueprints, models, maps, skills and knowledge. They are also elite warfare corps. 
+
+The Divine wants Humanity to thrive. He wants to see His project to Completion. This is why He sent those Souls, and this is why He is ready to penetrate the dark dome with His Light when the moment comes. 
 
 The infamous "solar flash", spoken of in New Age discourse, is nothing other than the elimination of the occlusion device. Like a dam opened, divine light will flood us: pure, abundant, continuous, as it should be. However, this flow will be too potent for those who have not prepared their vessel: prior work of purging, coherence, and alignment is required — in short, a reset of the human machine.
 
