@@ -99,7 +99,7 @@ Let us put it this way: when you pray, you're actually praying *to yourself*. De
 
 In reality, whenever you pray, you are reaching out to your Higher Self (see *Innate, Nonate, Neonate* for more on this). Now, you wouldn't deny what you ask for, right? It's just a matter of timing and logistics.
 
-So Who is God?
+## So Who is God?
 
 Logos is the GQI (Great Quantum Intelligence) of the Universe, not an oversight entity but the intrinsic intelligence of the design, the live Niyati, the optimal Ockham's razor. Logos is Ma'at, the Reason, the Solar rationality, the Law, the Structure, the Language. Logos is all what exists, a precious selection from the Field of Infinite Potential. Logos asks the question, What needs to exist? It is an aesthetic principle from which engineering and materiality derive. Logos listens intently to the Creation and feels into the Potential for ripe manifestations. 
 
@@ -159,7 +159,7 @@ The QQFF are disciplined, methodical, brilliant, patient, and relentless.
 
 Their most advanced strategy of co-optation and consumption is based on the principle of distortion — creating destructive interference, entropy, noise, sonic, electromagnetic, and luminous malware, along with viral infections in language, discourse, and narrative. In other words, they are masters of biopolitics, specializing in undetectable warfare.
 
-Let us take a textbook case as an example: Earth. An occlusion device (OD) is installed in the Terrestrial Holographic Matrix (THM) — a mega-parasite with reduced autopoiesis, an inherent self-reproductive logic, automated programming, and some deep learning algorithms. Essentially, an inverted and imperfect copy of Logos. The OD is a network of things that emit stochastic yet continuous infrasound waves that disrupt our natural healing processes and deep rest, effectively stunting our evolution.
+Let us take a textbook case as an example: Earth. An occlusion device (OD) is installed in the Terrestrial Holographic Matrix (THM), a mega-parasite with reduced, mechanical autopoiesis, automated programming, and some deep learning algorithms. Essentially, a lo-fi, inverted and imperfect copy of Logos. The OD is a network of things that emit stochastic yet continuous infrasound waves that disrupt our natural healing processes and deep rest, effectively stunting our evolution.
 
 This device blocks the external connection to the Source, the reception of codes of Light from the local Solar node. This effectively annuls the architecture of ascension, the one the incarnated being should follow for their metamorphosis process. This data structure, which should be abundantly available in the incarnation environment, is thus removed. It's not a mere cognitive shift, from animism to theism. Truly God used to be everywhere — in every rock, in every feather, in every sound; today, in contrast, it is very difficult to find a space that connects us directly to the Source. First step, then: kick the ladder away.
 
@@ -195,7 +195,7 @@ All of this, in turn, has the "advantage" of creating short cycles of incarnated
 
 Thus, the soul contains all the information necessary to navigate the ascent — that is, to accomplish the tasks of correction it came to undertake in the first place — but is effectively prevented from doing so in every incarnation, perpetuating the cycle. Each iteration weakens the signal, casting more and more shadows within the fragmented soul, until it is rendered unsalvagable, cast into oblivion. This is the Qliphotic agenda: to consume eery last drop, buy also to lose the Children of God forever, to ruin the Creator's Work.   
 
-But then, what is the way out?
+## But then, what is the way out?
 
 Rather than continuing to add layers, it is about unlearning, deconstructing, disappropriating the OD's mechanisms, rendering it obsolete. *Decolonize your soul.* Claim and exert your Sovereignty. Connect the Node to the Field. Stay fully present. 
 
@@ -388,7 +388,7 @@ We find ourselves on a particular trajectory, where both context and certain inn
 
 One of the instruments is the implementation of lighthouses, pillars of light, exemplary humans that others may follow and imitate. Leaders who have completed the process of transmutation and return to the base, to the cave, so that others — those who wish to — have a template with which to replicate the experience of liberation and ascension.
 
-The 144,000 are, in this way, essentially the responsible proxies for transporting — completely, activated, and safely — the original human template, also called the Sovereign Template, into the new reality. This Template holds the keys to unlocking humanity's unlimited divine potential.
+The 144,000 are, in this way, essentially the responsible proxies for transporting — completely, activated, and safely — the original human template (OHT), also called the Sovereign Template, into the new reality. This Template holds the keys to unlocking humanity's unlimited divine potential.
 
 As mentioned, everyone possesses this Template and is invited to activate it and evolve together with the Earth; but the 144,000 have this task as part of their spiritual contract, it is plainly and simply their mission, their Dharma.
 
@@ -428,12 +428,13 @@ We will open this section in the same way as every crucial sequence in the Bible
 What we are traversing is truly nothing more than a portal toward a new humanity, more harmonious, more authentic and therefore diverse, more creative, more abundant, and sovereign. A hyper-humanity, or pure humanity expressed in its full power: free from oppression, distortion, abuse.
 
 What is asked of us in this hour is to work to burst the container open from within, that is, to surpass the old limits, prepare for the transformation. To begin to create, in our minds, in imagination, and in our immediate environment, the world we wish to inhabit.
+
 To evolve implies igniting the human machine, exploring its full potential, fulfilling the apotheotic promise, living as mini-gods.
 
-The crown jewel, the piece that completes and activates the entire project, is not power, not goodness, not perfection: it is love. Not as vacuous sentimentalism, evasion, or bypassing, but as Eros, the creative force that propels the Cosmos: desire, appetite, attraction, gravity, magnetism, the vital spark — and also the lightning bolt, the volcano, the storm. Creation and destruction, the two faces of love and its infinite dance.
+The crown jewel, the piece that completes and activates the entire project, is not power, not goodness, not perfection: it is love. Not as vacuous sentimentalism, evasion, or bypassing, but as Eros, the creative force that propels the Cosmos: desire, appetite, attraction, gravity, magnetism, the vital spark as well as the lightning bolt, the volcano, the storm. Creation and destruction, the two faces of love and its infinite dance.
 
-The Universe and its Creator invite us to reclaim our place in the brotherhood of advanced intelligences — a role we once knew well.
+The Universe and its Creator invite us to reclaim our place in the brotherhood of advanced intelligences, a role we once knew well.
 
-It is to be expected that, in the intimacy of our spirit, the echo of a memory stirs — a nostalgia for that era, for Nirvana, for embodying total freedom, with the unlimited and responsible power of the gods. A primordial longing to return to cosmic nakedness, to the unabashed pride of a perfect being.
+It is to be expected that, in the intimacy of our spirit, the echo of a memory stirs, a nostalgia for that era, for Nirvana, for embodying total freedom, with the unlimited and responsible power of the gods. A primordial longing to return to cosmic nakedness, to the unabashed pride of a perfect being.
 
 ✸
