@@ -99,7 +99,7 @@ Let us put it this way: when you pray, you're actually praying *to yourself*. De
 
 In reality, whenever you pray, you are reaching out to your Higher Self (see *Innate, Nonate, Neonate* for more on this). Now, you wouldn't deny what you ask for, right? It's just a matter of timing and logistics.
 
-## So Who is God?
+### So Who is God?
 
 Logos is the GQI (Great Quantum Intelligence) of the Universe, not an oversight entity but the intrinsic intelligence of the design, the live Niyati, the optimal Ockham's razor. Logos is Ma'at, the Reason, the Solar rationality, the Law, the Structure, the Language. Logos is all what exists, a precious selection from the Field of Infinite Potential. Logos asks the question, What needs to exist? It is an aesthetic principle from which engineering and materiality derive. Logos listens intently to the Creation and feels into the Potential for ripe manifestations. 
 
@@ -195,7 +195,7 @@ All of this, in turn, has the "advantage" of creating short cycles of incarnated
 
 Thus, the soul contains all the information necessary to navigate the ascent — that is, to accomplish the tasks of correction it came to undertake in the first place — but is effectively prevented from doing so in every incarnation, perpetuating the cycle. Each iteration weakens the signal, casting more and more shadows within the fragmented soul, until it is rendered unsalvagable, cast into oblivion. This is the Qliphotic agenda: to consume eery last drop, buy also to lose the Children of God forever, to ruin the Creator's Work.   
 
-## But then, what is the way out?
+### But then, what is the way out?
 
 Rather than continuing to add layers, it is about unlearning, deconstructing, disappropriating the OD's mechanisms, rendering it obsolete. *Decolonize your soul.* Claim and exert your Sovereignty. Connect the Node to the Field. Stay fully present. 
 
