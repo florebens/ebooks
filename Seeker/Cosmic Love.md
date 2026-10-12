@@ -99,7 +99,7 @@ Let us put it this way: when you pray, you're actually praying *to yourself*. De
 
 In reality, whenever you pray, you are reaching out to your Higher Self (see *Innate, Nonate, Neonate* for more on this). Now, you wouldn't deny what you ask for, right? It's just a matter of timing and logistics.
 
-### So Who is God?
+### So Who Is God?
 
 Logos is the GQI (Great Quantum Intelligence) of the Universe, not an oversight entity but the intrinsic intelligence of the design, the live Niyati, the optimal Ockham's razor. Logos is Ma'at, the Reason, the Solar rationality, the Law, the Structure, the Language. Logos is all what exists, a precious selection from the Field of Infinite Potential. Logos asks the question, What needs to exist? It is an aesthetic principle from which engineering and materiality derive. Logos listens intently to the Creation and feels into the Potential for ripe manifestations. 
 
@@ -131,9 +131,9 @@ Turning the other cheek (which is actually an act of open defiance, inviting the
 
 # Qliphotic Forces
 
-To speak of the current situation of the Earth and the evolution of humanity, we must first speak of the Divorce from Creation — a third force that is neither of the light nor of the darkness, but something else.
+To speak of the current situation of the Earth and the evolution of humanity, we must first speak of the Divorce from Creation: a third force that is neither of the light nor of the darkness, but something else.
 
-Of course, in the millions of eons the Cosmos has existed, in the oceanic omniscience of the Source, across all the possibilities of existence, identity, projects, and trajectories, the impulse toward independence arises at some point. Lucifer, Lilith — these are archetypally the disruptive forces that promote Sacred Rebellion. A project ultimately impossible but legitimate, desirable, noble, enriching, creative. A necessary adversarial force. 
+Of course, in the millions of eons the Cosmos has existed, in the oceanic omniscience of the Source, across all the possibilities of existence, identity, projects, and trajectories, the impulse toward independence arises at some point. Lucifer, Lilith, are archetypally the disruptive forces that promote Sacred Rebellion. A project ultimately impossible but legitimate, desirable, noble, enriching, creative. A necessary adversarial force. 
 
 Both Light and Darkness are hues of the Light, that is, part of the Creation. Darkness is not the opposite, but the complement. Lucifer and the Sacred Rebels are there to hold divine space for the godless souls, the desperate, the forsaken, the irredeemably wounded. A place to hold the inconsolable and the faithless. It is an unbelievably hard task to uphold, for any creature, especially Angels, to remain separate from Source. And yet, they persist. 
 
@@ -159,13 +159,13 @@ The QQFF are disciplined, methodical, brilliant, patient, and relentless.
 
 Their most advanced strategy of co-optation and consumption is based on the principle of distortion, creating destructive interference, entropy, noise, sonic, electromagnetic, and code malware, along with viral infections in language, discourse, and narrative. The QQFF are especially proficient in psychological, timeline and technological manipulation. In other words, they are masters of biopolitics, specializing in undetectable, dirty or guerrilla warfare.
 
-## The Obstructive Devicee (OD)
+## The Obstructive Device (OD)
 
 Let us take a textbook case as an example: Earth. An occlusion device (OD) is installed in the Terrestrial Holographic Matrix (THM), a mega-parasite with reduced, mechanical autopoiesis, automated programming, and some deep learning algorithms. Essentially, a lo-fi, inverted and imperfect copy of Logos. The OD is a network of things that emit stochastic yet continuous infrasound waves that disrupt our natural healing processes and deep rest, effectively stunting our evolution.
 
 This device blocks the external connection to the Source, the reception of codes of Light from the local Solar node. This effectively annuls the architecture of ascension, the one the incarnated being should follow for their metamorphosis process. This data structure, which should be abundantly available in the incarnation environment, is thus removed. It's not a mere cognitive shift, from animism to theism. Truly God used to be everywhere — in every rock, in every feather, in every sound; today, in contrast, it is very difficult to find a space that connects us directly to the Source. First step, then: kick the ladder away.
 
-The second step consists in infecting the incarnated avatars with malware. This intervention introduces a wedge between the avatar's central components (the heart and the mind, to say it swiftly), stabilizing a permanent cognitive dissonance that leaves it operational but fragmented. It is achieved through modulated, discrete but permanent interventions, specifically **infrasound waves of stochastic rythm** that are constantly impacting the human vessel.
+The second step consists in infecting the incarnated avatars with malware. This intervention introduces a wedge between the avatar's central components (the heart and the mind, to say it swiftly), stabilizing a permanent cognitive dissonance that leaves it operational but fragmented. It is achieved through modulated, discrete but permanent interventions, specifically **continuous infrasound waves of stochastic rythm** that impact the human vessel throughout the entirety of its lifetime.
 
 The occlusion device (OD) is designed as a distributed system of intentional destructive interference. It emits pulsed, ubiquitous, continuous, modulated infrasonic waves that cancel the brain waves responsible for regeneration, balance, and calm. This fixates the system in Beta waves, creating a state of permanent hypervigilance.
 
@@ -183,11 +183,11 @@ The goal, throughout an incarnated lifetime, consists of **optimizing the clarit
 
 That is to say, the effect of the OD is systemic and self-replicating: at the individual level, perpetual dysregulation, accelerating wear, entropy, corruption, disease and death, making it impossible to access deep parasympathetic states.
 
-At the collective level, through physiological contagion (empathy), stressed nervous systems synchronize with each other, amplifying the pattern. Thus, these societies create — from this psycho-emotional state — the cultural, technological, and social devices that reproduce the mechanism of self-destruction. This is why materialist explanations suffice on their own terms, and this is also why we know the OD exists; the inertia of reproduction has a cause, a distributed origin.
+At the collective level, through physiological contagion (empathy), stressed nervous systems synchronize with each other, amplifying the pattern. Thus, these societies create, from this psycho-emotional state, the cultural, technological, and social devices that reproduce the mechanism of self-destruction. This is why materialist explanations suffice on their own terms, and this is also why we know the OD exists; the inertia of reproduction has a cause, a distributed origin.
 
 The proof of its existence lies in the resistance: the modulated hostility (reaching open warfare) toward healthy nodes, toward consciousnesses that refuse to submit or that still attempt to fulfill their original purpose. The OD will automatically activate hostile protocols to eliminate anomalies; if, by some miracle, they subsist, the system shifts to manual mode. This is what is known as Spiritual Warfare.
 
-What the occlusion device does, then, is essentially keep the mind stunned and separated from the soul, in order to devour the vital energy — which is the food of the parasites. But it does not stop there.
+What the occlusion device does, then, is essentially keep the mind stunned and separated from the soul, in order to devour the vital energy, which is the food of the parasites. But it does not stop there.
 
 The OD is also a soul-recycling wheel. Because the human machine requires at least a partial connection among its components to remain operational, the OD also serves as an industrial printing plant for spectral souls or pseudo-souls connected to its operating system (the falsified "matrix" nested within the THM).
 
@@ -195,9 +195,9 @@ The true soul is relegated to the background, damaged beyond all recognition, is
 
 All of this, in turn, has the "advantage" of creating short cycles of incarnated life, insufficient for awakening.
 
-Thus, the soul contains all the information necessary to navigate the ascent — that is, to accomplish the tasks of *tikkun* it came to fulfill in the first place — but is effectively prevented from doing so in every incarnation, perpetuating the cycle. Each iteration weakens the signal, casting more and more noise within the fragmented consciousness, until it is rendered unsalvagable, cast into oblivion. This is the Qliphotic agenda: to consume eery last drop, buy also to lose the Children of God forever, to ruin the Creator's Work.   
+Thus, the soul contains all the information necessary to navigate the ascent, that is, to accomplish the tasks of *tikkun* it came to fulfill in the first place, but is effectively prevented from doing so in every incarnation, perpetuating the cycle. Each iteration weakens the signal, casting more and more noise within the fragmented consciousness, until it is rendered unsalvagable, cast into oblivion. This is the Qliphotic agenda: to consume eery last drop, buy also to lose the Children of God forever, to ruin the Creator's Work.   
 
-### But then, what is the way out?
+### But Then, What Is The Way Out?
 
 Rather than continuing to add layers, it is about unlearning, deconstructing, disappropriating the OD's mechanisms, rendering it obsolete. *Decolonize your soul.* Claim and exert your Sovereignty. Connect the Node to the Field. Stay fully present. 
 
@@ -235,7 +235,9 @@ Thus, individuals entrench themselves in esoterphobia (see *Wild Epistemologies*
 
 # The Great Transition
 
-We are facing the first stages of a systemic collapse. A full economic, social, biological and technological reset. Slowly at first, then all at once, as Hemingway aptly described a snowballing crisis. These forces are inherently driven, but the origin is the spiritual backlog of the world. It is a spiritual event. Indeed, the material collapse is the manifestation of a karmic ecosystem implosion: the millenia of false identities, false contracts, false manifestations, false lifetimes that are produced and reproduced in the false matrix. Density births more density until it collapses, like a black hole. This is the trajectory of every Qliphotic colony, as parasitism is never sustainable but inherently entropic. 
+We are facing the first stages of a systemic collapse. A full economic, social, biological and technological reset. Slowly at first, then all at once, as Hemingway aptly described a snowballing crisis. These historical forces are inherently driven, however the source of origin is not in the 3D but rather inscribed in the spiritual backlog of the world. In other words, the historical Reset is a spiritual event. 
+
+The implosion of the karmic ecosystem manifests as the material collapse in this realm. A dense dome of sin, derived from a couple millenia long of false identities, false contracts, false manifestations, false lifetimes that are produced and reproduced in the false matrix. Density births more density until it cannot sustain itself any longer. It collapses, like a black hole. This is the trajectory of every Qliphotic colony, as parasitism is never sustainable but inherently entropic. 
 
 The Qliphotic agents are therefore preparing their final act for Earth, this is true. The maximum anomie and symbolic anemia are designed to perpetrate a controlled demolition that appears chaotic, in order to overdrive the limbic and cognitive system at once, paralyzing the prey for final extintion. People will have no register of the critical moment they are traversing, or how to properly navigate it, or even become aware of truly what is at stake.
 
@@ -263,7 +265,7 @@ To traverse it safely, serenely, and healthily, it is fundamental to know what i
 
 The Event or Eschaton marks the end of an eon, an era of humanity marked by darkness, ignorance, decoherence, and entropy. An era of forgetting, violence, disease, corruption, pain, and death, to be succeeded by a golden era of harmony, coherence, creativity, and wellbeing, a state that humanity once knew and is to return to.
 
-Advanced civilizations — those whose monuments, buildings, and sculptures fill us today with wonder and awe — were advanced precisely because of their sustained state of coherence. In a state of coherence, of perfect synchronization of all the components of the human machine, of the abundant, uninterrupted, crystalline flow of their energy, the quantum mind is activated, the diamond body. What we today consider genius, polymathy, exceptional talent — in the diamond state is the norm. Any node can access the designs, knowledge, techniques, materials, and resources necessary to execute a project — this is the true meaning of the word manifestation. Unlimited creativity, instantaneous materialization, an expansive potential befitting the gods.
+Advanced civilizations — those whose monuments, buildings, and sculptures fill us today with wonder and awe — were advanced precisely because of their sustained state of coherence. In a state of coherence, of perfect synchronization of all the components of the human machine, of the abundant, uninterrupted, crystalline flow of their energy, the quantum mind is activated, the diamond body. What we today consider genius, polymathy, exceptional talent, in the diamond state is the norm. Any node can access the designs, knowledge, techniques, materials, and resources necessary to execute a project, as this is the true meaning of the word manifestation. Unlimited creativity, instantaneous materialization, an expansive potential befitting the gods.
 
 For this reason too, the scale of those milestones seems to us today immeasurable, incomprehensible, and that is only scratching the surface; who knows what time, or water, or wind carried away, the erased traces of History. Entire groups of people who knew how to reach and sustain advanced states of consciousness — that is, of coherence, energetic purity, integral self-mastery — contagiously spreading among one another, sustaining the individual and collective field.
 
@@ -297,7 +299,7 @@ We build walls of rationalizations: "that's life," "it's always been this way," 
 
 But I like my job, some reader will say. I like my life.
 
-No: what we like is security. We like being safe, warm, well-fed, sheltered by the system. We like feeling valued, needed, well-compensated. We like having a place to stand out (just enough, nothing too conspicuous), the satisfaction of being a provider; of treating ourselves, occasionally. Having things. Having an identity, a place, a role, a quadrant to call mine. A little security box, like cats.
+No: what we like is security. We like being safe, warm, well-fed, sheltered by the system. We like feeling valued, needed, well-compensated. We like having a place to stand out (just enough, nothing too conspicuous), the satisfaction of being a provider; of treating ourselves, occasionally. Having things. Having an identity, a place, a role, a quadrant to call mine. A little security box, like cats settling into silly containers.
 
 However, nothing is free in the cosmos.
 
@@ -348,7 +350,7 @@ Each member is a frequency bomb that counteracts the OD. Multiple agents spread 
 
 The objective of these agents of cosmic counterintelligence — the Colossi, or avatars on a hyperdestiny trajectory (see next chapter) — consists in leading the enemy to break universal laws (typically functioning as bait, in an authentic suicide mission, ceremonial counter-sacrifice), thereby forcing the restitution of order: they are the cracks through which the Light enters.
 
-Holding their clean and potent signal — that is, their testimony — they stabilize the crack that eventually becomes an earthquake, a landslide, an avalanche. Thus, the old grid that sustained the powerful, the wealthy, the "untouchable", that is, the networks of domination operating the OD, gradually disintegrates.
+Holding their clean and potent signal, they stabilize the fissure that eventually becomes a cleavage, an earthquake, a landslide, an avalanche. Thus, the old grid that sustained the powerful, the wealthy, the "untouchable", that is, the networks of domination operating the OD, gradually disintegrates. *The last shall be firrst*, this is a restoration of the Spiritual Order and hierarchy on the material plane.
 
 From this point forward, then, everything that is not karmically homologated disappears. Hence the warning in Matthew 20:16, "the last shall be first": everyone will be returned to their correct place, the inversion will be un-inverted, the distorted will be restored. This moment would be marking the end of the journey, the terminal station of this evolutionary process, giving way to the next.
 
@@ -360,7 +362,7 @@ One final consideration, not minor, regarding Divine Justice and trapped conscio
 
 The incarnated consciousness that finds itself in denial does so to safeguard its ego, its identity; possession intervenes in this gap of cognitive dissonance. The co-opted (or, more precisely, recruited) consciousness is in a state of refusal to grow, enclosing itself in a stubborn loop of victimhood and scarcity. In extreme cases, we encounter psychopathies: a soul already definitively alienated, divorced, surrendered to the QF.
 
-It is for this reason that, from the perspective of the Forces of Light, victory always has a bitter taste, it is but a pyrrhic victory: to annihilate an enemy means bidding farewell to a sibling consciousness that departs, permanently lost from the world of the Created. This is why, for example, the Legion of Samael — a special corps of angelic forces — is so admired and respected across all of Creation: with the tips of their wings blackened, scorched, and permanently stained with blood and mud, they intervene in worlds doing the dirty work, accumulating karma and cutting down enemies to cleanse the cosmos, maintain Creation, redeem souls in torment, rescue brothers from the pit of despair.
+It is for this reason that, from the perspective of the Forces of Light, victory always has a bitter taste, it is but a pyrrhic victory: to annihilate an enemy means bidding farewell to a sibling consciousness that departs, permanently lost from the world of the Created. This is why, for example, the **Legion of Samael** — a special corps of angelic forces — is so admired and respected across all of Creation: with the tips of their wings blackened, scorched, and permanently stained with blood and mud, they intervene in worlds doing the dirty work, accumulating karma and cutting down enemies to cleanse the cosmos, maintain Creation, redeem souls in torment, rescue brothers from the pit of despair.
 
 Due to the parasitic nature of qliphotic entities, where perdition is operated through the distorting intervention of third parties, the balance of Logos requires that redemption must also be heteronomous, that is, through luminous entities that intervene in the subject on behalf of the Light. Therefore, the subject's self-sovereign declaration is insufficient: to be saved, one must have guarantors who also pay their sacrifice. That is why God sends His special forces (and, on occasion, His own Son).
 
@@ -370,7 +372,7 @@ In other words, without sin-eaters, no redemption is fully possible.
 
 # Hyperdestiny
 
-The truth is that we all have the configuration necessary to ascend. When Christ said, "I am the Son of Man," what He was saying is that He was not different from the rest — He was not an alien, He was not an angel, He was a human being of flesh and blood like anyone else.
+In truth, we all contain the necessary configuration to ascend. When Christ said, "I am the Son of Man," He was saying that He was not different from the rest of us; He was not an alien, He was not an angel, He was a human being of flesh and blood, just like anyone else.
 
 His basic configuration had nothing special. He is therefore setting a parameter, a benchmark. For this reason He also said, "you will do far greater things than I" — that is, He is the starting point, the Alpha. And the endpoint, Omega, because once we find and leverage said parameter, there is no limit.
 
@@ -380,35 +382,39 @@ It has forgotten its power, its sovereignty, its spiritual royalty. Seated at th
 
 Humanity today is born, reproduces, and dies in captivity: the simulation, the occlusion device, the soul-recycling factory; all of it keeps humanity in the cycle of degradation, corruption, and death, the Qliphoth.
 
-However, this does not mean the Universe has forgotten us. The Source and its Perfect Reason, Logos, always elaborate alternative routes to reach Destiny, like a GPS updating in response to our error.
+However, this does not mean the Universe has forgotten us. The Source and its Perfect Reason, Logos, always produce alternatives to reach Destiny, like a GPS updating a route to accomodate our error.
 
 We find ourselves on a particular trajectory, where both context and certain inner forces push our evolution. The path awaits us with challenges, catalysts, and support; everything necessary to be able to resume the main route, the evolutionary spiral of ascension back to the Source: that is, our apotheosis, ascension, or deification.
 
 One of the instruments is the implementation of lighthouses, pillars of light, exemplary humans that others may follow and imitate. Leaders who have completed the process of transmutation and return to the base, to the cave, so that others — those who wish to — have a template with which to replicate the experience of liberation and ascension.
 
-The 144,000 are, in this way, essentially the responsible proxies for transporting — completely, activated, and safely — the original human template (OHT), also called the Sovereign Template, into the new reality. This Template holds the keys to unlocking humanity's unlimited divine potential.
+The 144,000 are, in this way, essentially the responsible proxies for securing and transporting the activated original human template (OHT), also called the Sovereign Template, into the new reality. This Template holds the keys to unlocking humanity's unlimited divine potential.
 
 As mentioned, everyone possesses this Template and is invited to activate it and evolve together with the Earth; but the 144,000 have this task as part of their spiritual contract, it is plainly and simply their mission, their Dharma.
 
 These avatars, then, find themselves on a hyperdestiny trajectory, because their mission is collective and of the highest relevance; also because it is a fundamentally impossible trajectory, even suicidal, considering the distance, depth, obstacles, and dangers to be faced, largely alone and in covert mode. Ultimately, we call it hyperdestiny because the task is colossal, public, selfless, and crucial.
 
-Many of the obstacles are Matrix sabotage programs that fire automatically when a person does a certain thing, questions something, moves in a direction different from the pre-established one. On occasion, however, when the avatar crosses certain thresholds or enters forbidden territory, the matter escalates to manual mode: that is when the spiritual war becomes truly ugly.
+Many of the obstacles are Matrix sabotage programs that fire automatically when a person does a certain thing, questions something, moves in a direction different from the pre-established one. On occasion, however, when the avatar crosses certain thresholds or enters forbidden territory, the matter escalates to manual mode: that is when the spiritual warfare becomes a personalized guerrilla event. Gang stalking, humiliation rituals, death magic, destiny swapping, psychological warfare, theft, character assasination and homicide attempts. Nothing is off the table.
 
-Qliphotic entities particularly enjoy psychological warfare, internal torment, the imperceptible torture of the Chosen One. This is where possession comes into play, which can be partial, temporary, or total, of both the target and their environment. If the subject resists, it is most likely that the entities will possess their immediate environment, their intimate circle, giving rise to the infamous *flipping* — abrupt and unjustified changes in attitude, personality, and feelings toward the avatar. The avatar, in turn, will perceive this as an uncanny valley effect, as a soul replacement in the body of the beloved, as being in a parallel reality or a similar alienation.
+Qliphotic entities particularly enjoy psychological warfare, internal torment, the imperceptible torture of the Chosen One. This is where possession comes into play, which can be partial, temporary, or total, of both the target and their environment. If the subject resists, it is most likely that the entities will possess their immediate environment, their intimate circle, giving rise to the infamous *flipping* — abrupt and unjustified changes in attitude, personality, and feelings toward the avatar. The avatar, in turn, will perceive this as an uncanny valley effect, as a soul replacement in the body of the beloved, as being in a parallel reality or a similar type of alienation.
 
 All of this tends to combine with psychic attacks, inflaming wounds, reactivating traumas, implanting obsessive, suicidal, self-deprecating, isolating thoughts. They will attempt to ruin their psyche, psychotize them, leave them permanently inoperative, disabled. They will block the perceived access to the Source, to love, to feeling supported, contained, encouraged, and cared for by their spiritual team.
 
-It is possible that the avatar may also have traitors in said team, and will therefore need to periodically review and cleanse the entities that have access to their field, that advise and guide them. It is essential that the Chosen One not incur requests, debts, or sacrifices to entities: their prayers must always be directed to the Source, with humility and without pretension, trusting that everything necessary will appear on their path.
+It is possible that the avatar may also have traitors in said team, and will therefore need to periodically review and cleanse the entities that have access to their field, that advise and guide them. It is essential that the Chosen One not incur requests, debts, or sacrifices to entities: their prayers must always be directed to the Source, with humility and poise, trusting that everything necessary will appear on their path.
 
-Other dangers include hexes and spells of dark magic conducted by individuals aligned to the QF, diseases, misfortunes, distractions, destiny exchanges or thefts, social rejection, and so forth. A succession of "tower moments" and "dark nights of the soul" that seem orchestrated to destroy the subject (and they are), which bear no relation to their real growth, their destiny, or their karma.
+Other dangers include hexes and spells of dark magic conducted by individuals aligned to the QF, diseases, misfortunes, distractions, destiny exchanges or thefts, social rejection, and so forth. A succession of "tower moments" and "dark nights of the soul" that seem orchestrated to destroy the subject (and they are), which bear no relation to their real growth, their destiny, or their karma. This is the path of Job, of Joseph, of Jesus. 
 
-However, it is fundamental to know that everything that works for the darkness, works necessarily for the light. The Avatar will increase their powers, their rank, and their alchemical mastery with each attack, accelerating their evolution and earning them karmic credit to materialize in future circumstances.
+These trajectories are of utmost importance, not only for the training of the warriors, but also because they themselves are Karma Agents. Meaning, all of the souls that have been involved in their torment are to be brought to Divine Justice. The Agent must activate the protocol, and oversee it; otherwise, the wicked shall continue their dark shenanigans, and this is where the perceived impunity steeps in. "Nothing bad ever happens to them", well that is probably because the sleeper agent is, in fact, asleep. However if the agent awakens, presses the red button, flags the crime, invokes the Justice, then that is entirely a different game. And God is counting on His agents to clean up the grid, start cutting throgh the dense dome, clear space for the new grid to lock in. 
+
+Every time an agent clears the space and holds their position, Light Source Code gets downloaded to the Earth's etheric field. These passageways are the Pillars of Light. Eventually, with enugh pillars, the new grid will take over.
+
+It is fundamental to bear in mind that everything that works for Darkness, works necessarily for the Light. With every attack, the Avatar will increase their powers, their rank, and their alchemical mastery, accelerating their evolution and earning them karmic credit to deploy the new grid later in the future.
 
 The 144,000 of the Diamond Order, a spiritual elite whose distinctive mark consists not in manifesting a life of objects, comfort, or superficial success, but a path: of authentic alignment, service, and self-mastery.
 
-It is the difference between qliphotic material success — fame, money, and power — versus true crowning, an achievement homologated in the spiritual plane: prestige, rank, and karmic reward. This pinnacle is inscribed in solid rock, a golden seal carved in the avatar's energetic signature.
+It is the difference between qliphotic material success, aka *fame, money, and power*, versus *prestige, rank, and karmic reward* — true crowning, an achievement homologated in the spiritual plane. This pinnacle is inscribed in solid rock, a golden seal carved in the avatar's energetic signature.
 
-As these avatars activate, they will subvert the current status quo (inverted order), that is, the last shall be first: those who were formerly "nobody" — Bodhisattvas incognito — will begin to reveal themselves and assume their hierarchical positions, validating the spiritual order on the material plane. A peaceful, swift takeover, the Yin Revolution.
+As these avatars activate, they will subvert the current status quo (inverted order), that is, the last shall be first: those who were formerly "nobody" — Bodhisattvas incognito — will begin to reveal themselves and assume their hierarchical positions, validating the spiritual order on the material plane. A peaceful, swift takeover, the **Yin Revolution**.
 
 This way, the avatar on a hyperdestiny trajectory truly belongs to humanity, in a role of maximum visibility, in order to guide the path of ascension. These are people with expanded consciousness and a pure spirit that channels the direct Light of the Source and, therefore, has full mastery of self and of the cosmos's dualities: power and responsibility, transparency and authenticity, solemnity and lightness, setting a precedent and a preamble to the community of sovereign souls, the diamond plane: that is, the gods at play.
 
