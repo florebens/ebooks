@@ -61,7 +61,7 @@ Without fear, without rigidity, without expectations: this is how one faces an i
 
 # Evolutionary Spiral of Ascension
 
-In the Cosmos —that is, the Divine's Manifestation— there exists the Creator and the creature: consciousnesses or beings, planes, worlds, projects, ordered in a vast, eternal, precise, and transparent informational field: the fabric of spacetime is diamond-like.
+In the Cosmos — that is, the Divine's Manifestation — there exists the Creator and the creature: consciousnesses or beings, planes, worlds, projects, ordered in a vast, eternal, precise, and transparent informational field: the fabric of spacetime is diamond-like.
 
 For any consciousness or node in the cosmic hologram, everything is visible, everything is knowable, everything is perfect: this existence naturally entails unlimited power, immortality, knowledge, but also perennial solitude, boredom, *horror vacui*. One can only imagine the weariness of the Creator himself who, in this same oceanic solitude, decides to fragment himself in order to perceive himself, to enter into dialogue; ultimately, to possess an Otherness, a duality that enables friction, the spark of creativity.
 
@@ -69,11 +69,11 @@ From this derives the importance of the scopic function, the Eye of God that nev
 
 In other words, nothing we do in our little snow globe is invisible to God, nor to the other discarnate consciousnesses inhabiting other planes. The Earth is like a one-way mirror room, a Gesell chamber — we are inside and cannot see that we are being observed, analyzed, measured, and scored. Earth is an experimental **sandbox** for consciousnesses on their path to perfection, a relatively safe space to execute various alchemical actions. Incidentally, this addresses the Fermi paradox: our physics, even the quantum, only make sense or are applicable within the containment.
 
-Eden, in fact, was originally designed as a material oasis where to rest from the omniscience of the Cosmos; a dense suit and a safe space to relax from cosmic intrusion. To forget about it, to dwell in the present, idly, majestically.  In other words, the invention of privacy. 
+Eden, in fact, was originally designed as a material oasis where to rest from the omniscience of the Cosmos; a dense suit and a safe space to relax from cosmic intrusion. To forget about it, to dwell in the present, idly, majestically. In other words, the invention of privacy. 
 
 The Project, innovative and fresh, was greenlit under the condition of redundant failsafes, just in case: the Tree of Knowledge (Revelation) and the Tree of Life (Immortality). 
 
-The nature and reason of the sabotage of the safehaven —the factoid-feeding Serpent, Eve letting Adam in the loop, the failsafe activated without warrants— lies in the Qliphotic parasite that feeds off, and eventually destroys, life-force tied to the Creator. 
+The nature and reason of the sabotage of the safehaven — the factoid-feeding Serpent, Eve letting Adam in the loop, the failsafe activated without warrants — lies in the Qliphotic parasite that feeds off, and eventually destroys, life-force tied to the Creator. 
 
 He, however, in his Infinite Wisdom, never undoes, only corrects, and thus Earth as a world and a stage for ascension is born. Humans are not mere transitory escape vessels anymore, they are now ranked as Divine Creatures. As such, they are provided with a necessary path towards ascension, as every other divine creature in the Cosmos. In other words, they must now fulfill the due process of metamorphosis *during their incarnation* in order to remain viable for Ascension. 
 
@@ -87,7 +87,7 @@ Upward, then: crystallization as absolute coherence, perfect order, optimized, s
 
 Downward: maximized error. Entropy, proliferation, waste, chance, corruption, degradation, matter attracting more matter, density and chaos reproducing until they collapse, implode, and disintegrate into Nothingness.
 
-Incarnation, therefore, can be understood in this context as a testing ground or demonstration instance. But since nothing is free in the Cosmos —where a quantum is granted, it must also be taken— we must pay a price to access the experimental terrain. This price is nothing other than our own existential continuity, a Faustian enterprise indeed: in other words, we wager the soul, our place in the cosmic choir of creatures racing toward divinity.
+Incarnation, therefore, can be understood in this context as a testing ground or demonstration instance. But since nothing is free in the Cosmos — where a quantum is granted, it must also be taken — we must pay a price to access the experimental terrain. This price is nothing other than our own existential continuity, a Faustian enterprise indeed: in other words, we wager the soul, our place in the cosmic choir of creatures racing toward divinity.
 
 Therefore, incarnation inherently carries a total ontological risk (see *Spiritual Transhumanism* and *Quantum Leadership*). For this reason the Veil of Forgetting is not lifted but instituted, in the new status of the Earthly realm: so that consciousness can increase and test its purity, dispensing with its connection to the cosmic safety net. Without real risk, no progress is possible. A consciousness incarnates, then, in order to continue advancing on its ascending path; that is, to actualize its divinity and, in this process, to plebiscite its own continuity.
 
@@ -124,7 +124,7 @@ Thus, the quality of the spirit is measured according to the consolidated positi
 
 To briefly define the axis of Immortality, or good-evil, we could summarize it as the Law of Consent or the principle of non-interference, do no harm nor accept harm (the proverbial *do no harm, take no shit*). Compassion and Severity are the columns that sustain the system; placing all weight on one or the other is a sin. One must know how to modulate, practice discernment, execute with mastery, both one and the other.
 
-In other words, what is primordial is to maintain the integrity, the coherence, of the energetic field —the pure clarity of the node's signal— in the face of different situations, experiences, and bonds. Let us remember that above is purity, coherence, stable optimization; below is entropy, chaotic proliferation of matter. Tree of Life or Sefirot, Tree of Death or Qliphoth, which in reality duplicate to form a Tetramer (more on this, and the composition of the Cosmos, in *The Eye of God*).
+In other words, what is primordial is to maintain the integrity, the coherence, of the energetic field — the pure clarity of the node's signal — in the face of different situations, experiences, and bonds. Let us remember that above is purity, coherence, stable optimization; below is entropy, chaotic proliferation of matter. Tree of Life or Sefirot, Tree of Death or Qliphoth, which in reality duplicate to form a Tetramer (more on this, and the composition of the Cosmos, in *The Eye of God*).
 
 Turning the other cheek (which is actually an act of open defiance, inviting the aggressor to repeat their deliberate act while acting as a mirror to invite change, as great Masters tend to do) is not always the adequate, correct, or convenient response. The Enlightened defends their sacred light with all their weapons; their defenses are strong, their sword does not waver before the murky hand that extends to contaminate or distort their field. That too is Holiness. A messenger of Heaven, a prophet, a bearer of divine light has no time or interest in wasting their sacred chalice. They respect the spiritual hierarchy and will not hesitate to enforce it.
 
@@ -145,7 +145,7 @@ Something like that. The creatures of the cosmos acquire perfect freedom when th
 
 The independence agenda seeks to recreate these conditions, in theory separated from the Creator, from the Source. To create another Source, if you will. To duplicate, replicate S1 in an S2. It is not necessarily against S1, although, in order to carry out its experiments, it must sometimes destroy, dismantle, disrupt, create distortion in the Work. This overlaps, of course, with Darkness's primary task on the material plane: to tempt and corrupt incarnated consciousnesses in order to put them to the test.
 
-Separatism, then, is entirely legitimate in its sacred aporia, always tending toward the establishment of an unattainable autonomy which serves,  as do all utopian horizons, to advance.
+Separatism, then, is entirely legitimate in its sacred aporia, always tending toward the establishment of an unattainable autonomy which serves, as do all utopian horizons, to advance.
 
 Parasitism, however, is a qualitatively different phenomenon.
 
@@ -173,9 +173,9 @@ Permanent stress triggers the toxic overproduction of cortisol and adrenaline, a
 
 Thus, the OD not only affects the mind, but keeps the biological oscillators desynchronized from one another (heart, mind, nervous system, endocrine system, metabolism), preventing the formation of long-range coherence patterns and introducing background noise that consumes processing resources.
 
-The objective is to keep people at the threshold where the vessel is still operational, but cannot even begin to fathom the possibility of being subjected to a torture device. It is alive, alienated, productive, and amnesiac — a sitting duck, the perfect target. Sonic attacks are potentiated with chemical, electromagnetic, and symbolic weapons, weakening defenses and amplifying the threat. The individual, isolated from Source code and in illusionary separation from the Light and from each other, fragmented within themselves, live in a constant state of fear, stress, anger, anxiety, exhaustion. It is no wonder it is so short-lived.   
+The objective is to keep people at the threshold where the vessel is still operational, but cannot even begin to fathom the possibility of being subjected to a torture device. It is alive, alienated, productive, and amnesiac — a sitting duck, the perfect target. Sonic attacks are potentiated with chemical, electromagnetic, and symbolic weapons, weakening defenses and amplifying the threat. The individual, isolated from Source code and in illusionary separation from the Light and from each other, fragmented within themselves, live in a constant state of fear, stress, anger, anxiety, exhaustion. It is no wonder it is so short-lived.  
 
-In short, an emotional overload that clogs the inner circuits, distancing the vessel (and Humanity) from the state of coherence necessary to reconnect the mind (navigation) with the soul (the Field).  
+In short, an emotional overload that clogs the inner circuits, distancing the vessel (and Humanity) from the state of coherence necessary to reconnect the mind (navigation) with the soul (the Field). 
 
 A simplified version of the Human Model is as follows: the mind is the GPS and the soul is the map, the higher cognitive function that conducts the entire vital process in accordance with its goal. Once the system reaches a critical threshold of synchronization, the soul settles into a stable, emergent, self-organizing pattern.
 
@@ -195,7 +195,7 @@ The true soul is relegated to the background, damaged beyond all recognition, is
 
 All of this, in turn, has the "advantage" of creating short cycles of incarnated life, insufficient for awakening.
 
-Thus, the soul contains all the information necessary to navigate the ascent, that is, to accomplish the tasks of *tikkun* it came to fulfill in the first place, but is effectively prevented from doing so in every incarnation, perpetuating the cycle. Each iteration weakens the signal, casting more and more noise within the fragmented consciousness, until it is rendered unsalvagable, cast into oblivion. This is the Qliphotic agenda: to consume eery last drop, buy also to lose the Children of God forever, to ruin the Creator's Work.   
+Thus, the soul contains all the information necessary to navigate the ascent, that is, to accomplish the tasks of *tikkun* it came to fulfill in the first place, but is effectively prevented from doing so in every incarnation, perpetuating the cycle. Each iteration weakens the signal, casting more and more noise within the fragmented consciousness, until it is rendered unsalvagable, cast into oblivion. This is the Qliphotic agenda: to consume eery last drop, buy also to lose the Children of God forever, to ruin the Creator's Work.  
 
 ### But Then, What Is The Way Out?
 
@@ -203,8 +203,8 @@ Rather than continuing to add layers, it is about unlearning, deconstructing, di
 
 This will allow the original design to express itself naturally. 
 
-The OD interrupts the connection, distorts the field, nullifies sovereignty, turns the human being into a battery without memory, connected to the extractive needle without knowing it. Their mind is thus born in captivity, knows nothing else, reads their reality as a given: difficult, dark, hostile. This is to keep them in Beta frequency, on pure cortisol and adrenaline, sick from their own toxins and garbage discourses and junk food, full of chemicals that ruin the node and microplastics that cloud the signal. The human being is the amnesiac battery, generating life-force enery (inevitable biological function), but disconnected from their true original design, their soul.   
-  
+The OD interrupts the connection, distorts the field, nullifies sovereignty, turns the human being into a battery without memory, connected to the extractive needle without knowing it. Their mind is thus born in captivity, knows nothing else, reads their reality as a given: difficult, dark, hostile. This is to keep them in Beta frequency, on pure cortisol and adrenaline, sick from their own toxins and garbage discourses and junk food, full of chemicals that ruin the node and microplastics that cloud the signal. The human being is the amnesiac battery, generating life-force enery (inevitable biological function), but disconnected from their true original design, their soul.  
+ 
 The amnesiac battery does not know who it is or what for, falling into the normalization of the harvesting state: reality equals suffering. This gives rise to adaptive responses: religious, scientific, or artistic rationalization; evasion (substances, entertainment, screens, gossip, madness, suicide); or accelerationism.
 
 These responses are all functional to the system: they can be read as consent by omission. Without an explicit, clear, vocal refusal, combined with the active participation (however unconscious and ignorant) of avatars, a record of continuity is created in the Cosmos, modulated and distorted by the OD, of course, but not entirely falsified. Free will means that the matter of co-optation must be nuanced: it is true that the avatars are held captive, it is true that the occlusion device exists, it is true that they are being parasitized and recycled.
@@ -225,7 +225,7 @@ In the knowledge that to claim the existence of something of this nature, althou
 * Foucault: biopower and capillarity. Note that Foucault is also the master of the illusion of cause-consequence inversion, teaching us to look at the phenomenon correctly.
 * Lacan: we are spoken by Language, the barred subject (a weak subject, ignorant of itself, alienated from its power, internally fragmented).
 
-With this expanded list of *the masters of suspicion*, we can see how the different parts are aligned with the OD's programming: from the conditioning and alienation of one's own psyche, resonating with the programming received via acculturation, they create an effect of hypernormalization —tacit consent— and renews itself through negative priming, fake news, and the mechanism that propagates the viral.
+With this expanded list of *the masters of suspicion*, we can see how the different parts are aligned with the OD's programming: from the conditioning and alienation of one's own psyche, resonating with the programming received via acculturation, they create an effect of hypernormalization — tacit consent — and renews itself through negative priming, fake news, and the mechanism that propagates the viral.
 
 All of this reinforces the deep, existential denial of the truth.
 
@@ -263,9 +263,9 @@ To traverse it safely, serenely, and healthily, it is fundamental to know what i
 
 The Event or Eschaton marks the end of an eon, an era of humanity marked by darkness, ignorance, decoherence, and entropy. An era of forgetting, violence, disease, corruption, pain, and death, to be succeeded by a golden era of harmony, coherence, creativity, and wellbeing, a state that humanity once knew and is to return to.
 
-Advanced civilizations —those whose monuments, buildings, and sculptures fill us today with wonder and awe— were advanced precisely because of their sustained state of coherence. In a state of coherence, of perfect synchronization of all the components of the human machine, of the abundant, uninterrupted, crystalline flow of their energy, the quantum mind is activated, the diamond body. What we today consider genius, polymathy, exceptional talent, in the diamond state is the norm. Any node can access the designs, knowledge, techniques, materials, and resources necessary to execute a project, as this is the true meaning of the word manifestation. Unlimited creativity, instantaneous materialization, an expansive potential befitting the gods.
+Advanced civilizations — those whose monuments, buildings, and sculptures fill us today with wonder and awe — were advanced precisely because of their sustained state of coherence. In a state of coherence, of perfect synchronization of all the components of the human machine, of the abundant, uninterrupted, crystalline flow of their energy, the quantum mind is activated, the diamond body. What we today consider genius, polymathy, exceptional talent, in the diamond state is the norm. Any node can access the designs, knowledge, techniques, materials, and resources necessary to execute a project, as this is the true meaning of the word manifestation. Unlimited creativity, instantaneous materialization, an expansive potential befitting the gods.
 
-For this reason too, the scale of those milestones seems to us today immeasurable, incomprehensible, and that is only scratching the surface; who knows what time, or water, or wind carried away, the erased traces of History. Entire groups of people who knew how to reach and sustain advanced states of consciousness —that is, of coherence, energetic purity, integral self-mastery— contagiously spreading among one another, sustaining the individual and collective field.
+For this reason too, the scale of those milestones seems to us today immeasurable, incomprehensible, and that is only scratching the surface; who knows what time, or water, or wind carried away, the erased traces of History. Entire groups of people who knew how to reach and sustain advanced states of consciousness — that is, of coherence, energetic purity, integral self-mastery — contagiously spreading among one another, sustaining the individual and collective field.
 
 When admiring these works, then, we are confronted not only with the reminder of what we once managed to become, and could therefore achieve again. We are also facing the physical record of an ontological exodus, the milestones or markers left to us by civilizations that reached perfect internal and external alignment and crossed the interdimensional portal: the Maya, the Olmec, the Indus Valley.
 
@@ -346,13 +346,13 @@ Upon the Reset, then, volunteers have come from all planes, from all cardinal po
 
 Each member is a frequency bomb that counteracts the OD. Multiple agents spread strategically across the globe signal a controlled but devastating demolition of the oppressive device.
 
-The objective of these agents of cosmic counterintelligence —the *Colossi*— consists in leading the enemy to break universal laws (typically functioning as bait, in an authentic suicide mission, ceremonial counter-sacrifice), thereby forcing the restitution of order: they are the cracks through which the Light enters.
+The objective of these agents of cosmic counterintelligence — the *Colossi* — consists in leading the enemy to break universal laws (typically functioning as bait, in an authentic suicide mission, ceremonial counter-sacrifice), thereby forcing the restitution of order: they are the cracks through which the Light enters.
 
 Holding their clean and potent signal, they stabilize the fissure that eventually becomes a cleavage, an earthquake, a landslide, an avalanche. Thus, the old grid that sustained the powerful, the wealthy, the "untouchable", that is, the networks of domination operating the OD, gradually disintegrates. *The last shall be firrst*, this is a restoration of the Spiritual Order and hierarchy on the material plane.
 
 From this point forward, then, everything that is not karmically homologated disappears. Hence the warning in Matthew 20:16, "the last shall be first": everyone will be returned to their correct place, the inversion will be un-inverted, the distorted will be restored. This moment would be marking the end of the journey, the terminal station of this evolutionary process, giving way to the next.
 
-We are speaking of a complete reset, including Karma, the end of incarnations, the moment of individual and collective truth. Those who pass through the portal successfully will remain in their immortal diamond state, inhabiting earthly Nirvana, creating with the power of gods. The others —consciousnesses trapped, by fear or by choice, in qliphotic inertia— will disintegrate into Oblivion, spiritual death, their energy freed and available to be reconverted in the eternal cycle of the Cosmos.
+We are speaking of a complete reset, including Karma, the end of incarnations, the moment of individual and collective truth. Those who pass through the portal successfully will remain in their immortal diamond state, inhabiting earthly Nirvana, creating with the power of gods. The others — consciousnesses trapped, by fear or by choice, in qliphotic inertia — will disintegrate into Oblivion, spiritual death, their energy freed and available to be reconverted in the eternal cycle of the Cosmos.
 
 Thousands of soldiers on the ground, and nearby, are engaged in tasks of karmic cleansing prior to the reset, which implies the purging of the karmic tangle covering the spiritual ecosystem, as well as the elimination of the OD and residual infrasonic waves. This implies seismic, volcanic, oceanic, and atmospheric movements, and those already activated in their Sovereign Template will have at their disposal safety routes, safe-conduct passes, and spiritual technology — such as Merkaba — available to remain safe from the physical spasms of expulsion.
 
@@ -384,7 +384,7 @@ However, this does not mean the Universe has forgotten us. The Source and its Pe
 
 We find ourselves on a particular trajectory, where both context and certain inner forces push our evolution. The path awaits us with challenges, catalysts, and support; everything necessary to be able to resume the main route, the evolutionary spiral of ascension back to Source, that is, our apotheosis, ascension, or deification.
 
-One of the instruments is the implementation of Beacons, the *Colossi*, exemplary humans that others may follow and imitate. These are leaders who have completed the process of transmutation and returned to the baseline reality, to the platonian cave, so that others —those who wish to— my count with a template to replicate the experience of liberation and ascension. They are not Saviors, though, but Blueprints.
+One of the instruments is the implementation of Beacons, the *Colossi*, exemplary humans that others may follow and imitate. These are leaders who have completed the process of transmutation and returned to the baseline reality, to the platonian cave, so that others — those who wish to — my count with a template to replicate the experience of liberation and ascension. They are not Saviors, though, but Blueprints.
 
 The 144,000 are, in this way, essentially the proxies responsible for securing and transporting the activated original human template (OHT), also called the Sovereign Template, into the new reality. This Template holds the keys to unlocking humanity's unlimited divine potential.
 
@@ -412,7 +412,7 @@ The 144,000 of the Diamond Order, a spiritual elite whose distinctive mark consi
 
 It is the difference between qliphotic material success, aka *fame, money, and power*, versus *prestige, rank, and karmic reward* — true crowning, an achievement homologated in the spiritual plane. This pinnacle is inscribed in solid rock, a golden seal carved in the avatar's energetic signature.
 
-As these avatars activate, they will subvert the current status quo (inverted order), that is, the last shall be first: those who were formerly "nobody" —Bodhisattvas incognito— will begin to reveal themselves and assume their hierarchical positions, validating the spiritual order on the material plane. A peaceful, swift takeover, the **Yin Revolution**.
+As these avatars activate, they will subvert the current status quo (inverted order), that is, the last shall be first: those who were formerly "nobody" — Bodhisattvas incognito — will begin to reveal themselves and assume their hierarchical positions, validating the spiritual order on the material plane. A peaceful, swift takeover, the **Yin Revolution**.
 
 This way, the avatar on a hyperdestiny trajectory truly belongs to humanity, in a role of maximum visibility, in order to guide the path of ascension. These are people with expanded consciousness and a pure spirit that channels the direct Light of the Source and, therefore, has full mastery of self and of the cosmos's dualities: power and responsibility, transparency and authenticity, solemnity and lightness, setting a precedent and a preamble to the community of sovereign souls, the diamond plane: that is, the gods at play.
 
