@@ -281,19 +281,19 @@ Let us recall that the decision to ascend is ethical, ontological, spiritual; an
 
 
 
-# Karma Police
+# Karma Economics and Reset
 
 Game over.
 
-Everything that worked before, no longer does: the ground disintegrates beneath the wayward, the imposters are exposed for what they are, the corrupt webs crumble. We are at the closing of the cycle, the moment when the simulation is exposed for what it is — cardboard, paint, and a script.
+The Reset of the Karmic Ledgers is upon us. The system has reached a peak of saturation that will tip over and implode, sooner than later. 
 
-Outside of culture, far from the mainstream, on the outskirts of the guardrails of History, in the desert of symbolic exposure, lies the portal toward the new world.
+The oiled mmechanisms through which corrupted souls elevated and trumped the universal laws are starting to lose momentum, the cracks are widening, the screws are loosening up. We are at the closing of the cycle, the moment when the simulation is exposed for what it is — cardboard, paint, and a script. Outside of the crumbling dome of culture, in the desert of symbolic exposure, lies the portal to the new world.
 
-And the truth is, to evolve one must confront death: the death of the ego, the identity we constructed within that esoterophobic echo chamber that is the parasitic matrix of the occlusion device, of the attachment to its rewards and punishments, of the brutality we normalized and compartmentalized day after day, only so we could keep living, get out of bed in the morning, have trivial conversations in the coffee shop, pay taxes and do the laundry.
+To survive this transition one must evolve, aand to do so one must confront death: the death of the ego, the identity we constructed within that esoterophobic echo chamber that is the parasitic matrix of the Occlusion Device, with its Dark Agenda and Pyramid of Gateekeeping via blood sacrifice and rituals, while the uninitiated masses pay to survive each day, pay to become the livestock of energy to the parasitic overlords.
 
 As noted in the previous chapter, the OD bombards us 24/7 with information about the brutality of genocides, savage exploitation, explicit violence, abuse of all kinds; and overlays it with galloping impotence, the reminder of one's own insignificance, of the zero impact we have to modify reality. This reloads the weight of guilt, that is, our own complicity. This is the elementary mechanism of the OD: consensual non-consent (CNC), the ignorant or cynical reproduction of our own degradation and extinction.
 
-We build walls of rationalizations: "that's life," "it's always been this way," "it's naive to pretend you can change the world," "you have to grow up." But mass media drills holes in our wall of not-seeing, enough to flood us with filth but insufficient to get out. Trapped in our own mental scaffolding, we surrender our powers one by one, we hand over our membership card at the entrance to work, we pay with our agency the price of existing. We stay alive one more day, but at what cost.
+We build walls of rationalizations: "that's life," "it's always been this way," "how naif to asaspire to change the world", "grow up". But mass media drills holes in our wall of not-seeing, enough to flood us with filth but insufficient to get out. Trapped in our own mental scaffolding, we surrender our powers one by one, we hand over our membership card at the entrance to work, we pay with our agency the price of existing. We stay alive one more day, but at what cost.
 
 But I like my job, some reader will say. I like my life.
 
@@ -301,9 +301,9 @@ No: what we like is security. We like being safe, warm, well-fed, sheltered by t
 
 However, nothing is free in the cosmos.
 
-The continuity of this system is paid for with sacrifices whose lambs are provided by the other. Someone pays for our comfort, that is certain. A faceless mass finances my vacations and my iPhone. I see them daily in the news, I am horrified, I clutch my pearls. Thoughts and prayers. But the unconscious knows the Faustian contract that is updated with every tweet, every reel, every casualty count.
+The continuity of this system is paid for with sacrifices whose lambs are provided by the other. Someone pays for our comfort, that is certain. A faceless mass finances my vacations and my iPhone. I see them daily in the news, I am horrified, I clutch my pearls. Thoughts and prayers. But the unconscious knows the Faustian contract that is updated with every tweet, every reel, every casualty count. Omelas lives on.
 
-This is not being woke, it is simply being able to see the elementary connections of our reality, the most basic pattern of the matrix. Like its creators, it is based on parasitism, subjugation, the phagocytosis of innocent victims. It is the instrument that birthed the device of colonization, of racism, xenophobia, sexism... in short, every dehumanizing division.
+This is not being woke, it is simply being able to see the elementary connections of our reality, the most basic pattern of the matrix. Like its creators, it is based on parasitism, subjugation, the phagocytosis of innocent victims. It is the instrument that birthed the device of colonization, of racism, xenophobia, sexism... in short, every dehumanizing device.
 
 I have nothing to do with it! I'm just a simple human, doing my little things, trying to get ahead. Yes — that is the point: survival mode is imposed and universal, precisely so there is no room to look at the system and change it. It is also a convenient excuse, a feedback loop of evil.
 
@@ -317,11 +317,13 @@ In other words, we find ourselves trapped in a continuous present of the act of 
 
 And both axes are measured in relation to the Other.
 
-An Other who, as Lacanians will rightly say, does not exist; and it is precisely in that absence that my integrity is encoded, the purity of my consciousness. It is because the Other does not exist; from the radical I Am (not solipsism, but the recognition that comes from spiritual experience), that I have the responsibility of filling that container with the best of myself. To treat that Other as a mirror, which it is; as an actor in my play, which it is. The response or feedback does not concern me, it is not within my sphere of power.
+An Other who, as Lacanians will rightly say, does not exist; and it is precisely in that absence that my integrity is encoded, the purity of my consciousness. It is because the Other does not exist; from the radical I Am (not solipsism, but the recognition that comes from spiritual experience), that I have the responsibility of filling that empty container with the best of myself. To treat that Other as a mirror, which it is; as an actor in my play, which it is. The response or feedback does not concern me, it is not within my sphere of power.
 
 What is my responsibility is the openness of the exchange. Whether the approach is open, generous, gentle; whether it is sincere, warm, prudent, moderate. The other will respond according to their own script, the work they are developing in their universe. Each intersection, each I Am exchange, is an opportunity to correct, to update, to grow. The Other is incommensurable in their subjective qualia, but what I do know is that their depth and complexity — that is, their status as cosmic citizenship — equals mine. In any container, any skin, any language and tax bracket.
 
-The unconscious, which knows everything, is your judge, your compass, and your scales.
+Kindness, thus, is optimal energy management. It is light, lean, effective. Evil is inherently entropic, dense, costly.
+
+Consciousness, omnniscient and omnipresent, is your judge, your compass, and your scales.
 This is why the call to unity, to remember that we are all One, is not merely a moral categorical imperative or a pretty slogan, but an elementary step to recovering the integrity of our field, to elevating ourselves on the axis of coherence. Social fragmentation — in other words, anomie — has its correlate in the entropy of our individual field.
 
 If the social matrix is already contaminated with the originary crime, it implies that all the bonds, objectives, tasks, and contracts in which we engage will be, by default, inauthentic, a completely falsified life.
@@ -342,15 +344,17 @@ Lack is thus revealed as a corollary of a false, simulated, unaligned life. It e
 
 For this reason, our spiritual ecosystem is charged with a dense and chaotic tangle of karmic energy, the product of this uncontrolled proliferation of bonds, objects, and timelines, without reference to the Master Design. This energy is currently reaching saturation, a tipping point.
 
-Upon the Reset, then, volunteers have come from all planes, from all cardinal points of the cosmos. The Cosmic Cleaning Service® creates disruption to demolish the OD, clean the zone, and install the clean codes of the update. Typically, these are beings of very pure frequency, advanced consciousnesses with sophisticated spiritual weapons. Which is why it is called the Diamontine Order, and it naturally repels every qliphotic component.
+## Karma Agents
 
-Each member is a frequency bomb that counteracts the OD. Multiple agents spread strategically across the globe signal a controlled but devastating demolition of the oppressive device.
+Upon the Reset, volunteers have come from all planes, from all cardinal points of the cosmos. The Cosmic Cleaning Service® creates disruption to destroy the OD, clear the area, and install the clean codes of the update. Typically, these are beings of very pure frequency, advanced consciousnesses with sophisticated spiritual weapons. Which is why it is called the Diamontine Order, and it naturally repels every qliphotic component.
 
-The objective of these agents of cosmic counterintelligence — the *Colossi* — consists in leading the enemy to break universal laws (typically functioning as bait, in an authentic suicide mission, ceremonial counter-sacrifice), thereby forcing the restitution of order: they are the cracks through which the Light enters.
+Each member is a frequency bomb that counters the OD. Multiple agents spread strategically across the globe signal a controlled but devastating demolition of the oppressive device.
 
-Holding their clean and potent signal, they stabilize the fissure that eventually becomes a cleavage, an earthquake, a landslide, an avalanche. Thus, the old grid that sustained the powerful, the wealthy, the "untouchable", that is, the networks of domination operating the OD, gradually disintegrates. *The last shall be firrst*, this is a restoration of the Spiritual Order and hierarchy on the material plane.
+The objective of these agents of cosmic counterintelligence — the *Colossi* — consists of baiting the enemy, in an authentic suicide mission, ceremonial counter-sacrifice, thereby forcing the restitution of order: they are the cracks through which the Light enters.
 
-From this point forward, then, everything that is not karmically homologated disappears. Hence the warning in Matthew 20:16, "the last shall be first": everyone will be returned to their correct place, the inversion will be un-inverted, the distorted will be restored. This moment would be marking the end of the journey, the terminal station of this evolutionary process, giving way to the next.
+Holding their clean and potent signal, they stabilize the fissure that eventually becomes a cleavage, an earthquake, a landslide, an avalanche. Thus, the old grid that sustained the powerful, the wealthy, the "untouchable", that is, the networks of domination operating the OD, gradually disintegrates. *The last shall be first*, this is a restoration of the Spiritual Order and hierarchy on the material plane.
+
+From this point forward, then, **everything that is not karmically homologated disappears**. Hence the warning in Matthew 20:16, "the last shall be first": everyone will be returned to their correct place, the inversion will be un-inverted, the distorted will be restored. This moment would be marking the end of the journey, the terminal station of this evolutionary process, giving way to the next.
 
 We are speaking of a complete reset, including Karma, the end of incarnations, the moment of individual and collective truth. Those who pass through the portal successfully will remain in their immortal diamond state, inhabiting earthly Nirvana, creating with the power of gods. The others — consciousnesses trapped, by fear or by choice, in qliphotic inertia — will disintegrate into Oblivion, spiritual death, their energy freed and available to be reconverted in the eternal cycle of the Cosmos.
 
@@ -425,9 +429,9 @@ And return in one piece to assist.
 
 # Conclusion
 
-We open this section in the same way as every crucial sequence in the Bible: with the phrase "Be Not Afraid."
+We shall open this section in the same way as every crucial sequence in the Bible: with the phrase "Be Not Afraid."
 
-What we are traversing is truly nothing more than a portal toward a new humanity, more harmonious, more authentic and therefore diverse, more creative, more abundant, and sovereign. A hyper-humanity, or pure humanity expressed in its full power: free from oppression, distortion, abuse.
+What we are traversing is truly phenomenal: a portal to a new humanity, more harmonious, more authentic and therefore diverse, more creative, more abundant, and sovereign. A hyper-humanity, or pure humanity expressed in its full power: free from oppression, distortion, abuse.
 
 What is asked of us in this hour is to work to burst the container open from within, that is, to surpass the old limits, prepare for the transformation. To begin to create, in our minds, in imagination, and in our immediate environment, the world we wish to inhabit.
 
