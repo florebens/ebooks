@@ -128,7 +128,11 @@ To briefly define the axis of Immortality, or good-evil, we could summarize it a
 
 In other words, what is primordial is to maintain the integrity, the coherence, of the energetic field — the pure clarity of the node's signal — in the face of different situations, experiences, and bonds. Let us remember that above is purity, coherence, stable optimization; below is entropy, chaotic proliferation of matter. Tree of Life or Sefirot, Tree of Death or Qliphoth, which in reality duplicate to form a Tetramer (more on this, and the composition of the Cosmos, in *The Eye of God*).
 
-Turning the other cheek (which is actually an act of open defiance, inviting the aggressor to repeat their deliberate act, holding for them an unflinching mirror in order to invite change, as great Masters tend to do) is not always the adequate, correct, or convenient response. The Enlightened defends their sacred light with all their weapons; their defenses are strong, their sword does not waver before the murky hand that extends to contaminate or distort their field. That too is Holiness. A messenger of Heaven, a prophet, a bearer of divine light has no time or interest in wasting their sacred chalice. They respect the spiritual hierarchy and will not hesitate to enforce it.
+In other words, compassion and self abandonment are not the same. Each divine spark must be protected, nurtured and evolved into its full realization. The individual then has the responsibility to guard and protect this Light, tend to it, expand it.
+
+This is why *turning the other cheek* is not always the adequate, correct, or convenient response. In Jesus Christ's story, in fact, it is an open act of defiance rather than sheepish submission, inviting the aggressor to consciously repeat their deliberate act, holding for them an unflinching mirror in order to invite change, as great Masters tend to do.
+
+The Enlightened must defend their sacred light with all their might, their weapons, their wits and force. Advanced Spiritual Masters hold strong boundaries, their defense arts are powerful, and their sword does not waver before the murky hand that reaches over to contaminate their field. That too is Holiness. A messenger of Heaven, a prophet, a bearer of divine light has no time or interest in wasting their sacred chalice. They respect the spiritual hierarchy and will not hesitate to enforce it.
 
 
 # Qliphotic Forces (QQFF)
