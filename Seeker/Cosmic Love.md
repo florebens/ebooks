@@ -294,7 +294,7 @@ Upon the Reset, volunteers have come from all planes, from all cardinal points o
 
 They fall upon Earth’s lowest timelines and burst out like the baby turtles at shore, hurdling and dragging and pushing themselves towards safety. They land within very dense, karmic settings, and their survival is nothing short of a miracle, a true suicide misssion. This hardship is the price to pay to fulfill their mission, that is to change the world, to uproot the status quo of darkness and evil and replace it with a God-ordained matrix.
 
-Why do they do this? Why subject themselves to martyrdom, torture, suffering in the lowest realms, when they could stay safe and peaceful drinking cosmic margaritas? They do this out of love. Pure, inebriating Love for God, the Creation, the Masterpiece.
+**Why do they do this?** Why subject themselves to martyrdom, torture, suffering in the lowest realms, when they could stay safe and peaceful drinking cosmic margaritas? They do this out of love. Pure, inebriating Love for God, the Creation, the Masterpiece.
 
 The Cosmic Cleaning Service® operator’s frequency creates a disruption in the OD. This clears the area for the installation of updated, uncorrupted codes. The strategy is effective, each agent is a frequency bomb that counters the OD. Multiple agents spread strategically across the globe signal a controlled but devastating demolition of the Death Star.
 
@@ -317,7 +317,8 @@ Due to the parasitic nature of qliphotic entities, where perdition is operated t
 
 In other words, without sin-eaters, no redemption is fully possible.
 
-### The Three Corrections
+_____
+> ### The Three Corrections 
 
 >If one were to commit to self correction, there are three paths to return to the rightful trajectory: Love, law and punishment.
 
@@ -326,18 +327,18 @@ In other words, without sin-eaters, no redemption is fully possible.
 >• If you fail your test, you will be corrected by the Book. Strict and proper.
 
 >• Finally, if one refuses to abide by the law, one receives punishment in order to compensate for the crime.
-
+___
 
 ## Hyperdestiny
 In truth, we all contain the necessary elements to ascend. When Christ said, "I am the Son of Man," He was saying that He was not different from the rest of us; He was not an alien, He was not an angel, He was a human being of flesh and blood, just like anyone else.
 
 His basic configuration had nothing extra. He is therefore setting a parameter, a benchmark. For this reason He also said, "you will do far greater things than I" — that is, He is the starting point, the Alpha. And the endpoint, Omega, because once we find and leverage said parameter, there is no limit.
 
-Humanity today has forgotten its destiny. It has swayed away from the Original Path of Ascension, its empowerment into godhood state. It has forgotten its sovereignty, its spiritual royalty. Seated at the right hand of the Father is every realized being whose potential has been actualized, fulfilling to the last drop the Original Design for which they were created.
+Humanity today has forgotten its destiny. It has strayed away from the Original Path of Ascension, its empowerment into godhood state. It has forgotten its sovereignty, its spiritual royalty. Seated at the right hand of the Father is every realized being whose potential has been actualized, fulfilling to the last drop the Original Design for which they were created.
 
 But the Creator has a plan. He has set several instruments in motion to recover the Lost and redirect them to the Golden Timeline.
 
-One of the instruments is the implementation of Beacons, the Colossi, exemplary humans that others may follow and imitate. These are leaders who have completed the process of transmutation and returned to the baseline reality, to the platonian cave, so that others — those who wish to — may count with a template to replicate the experience of liberation and ascension. They are not Saviors, though, but Beacons.
+One of the instruments is the implementation of Beacons, the Colossi, exemplary humans that others may follow and imitate. These are leaders who have completed the process of transmutation and returned to the baseline reality, to Plato's cave, so that others — those who wish to — may count with a template to replicate the experience of liberation and ascension. They are not Saviors, though, but Beacons.
 
 The 144,000 are, in this way, essentially the proxies responsible for securing and transporting the activated original human template (OHT), also called the Sovereign Template, into the new reality. This Template holds the keys to unlocking humanity's unlimited divine potential.
 
@@ -407,13 +408,15 @@ The solar flash acts as the Eye of the Needle, the Ankh: a portal of frequency, 
 
 Many will be overcome by fear, rage, confusion, wickedness. Others — the Praus, the disciplined ones, those who have Done The Work® — will be dancing and singing hymns to the Divinity, freed at last from the shackles of oppression and density. Their inner frequency will now match the environment, the distortion abjured, the serenity and joy boundless. 
 
+Any and all turbulence that might arise from the Flash, and consequential Split into 3D and 5D, will be maneuvered with ease and safety by the ascended. The [Merkaba](https://github.com/florebens/ebooks/blob/main/Seeker/Merkaba%20Vehicle%20of%20Light%20Shevirat%20ebook.md) will prove to be an invaluable resource to navigate this process, lifting the vessels away from harm and transporting them wherever they need to be. Truly the Noah's ark from our time, for it not only serves as shield and emergency transportation device, it also raises the frequency to match the Portal.
+
 The Flash will instantly transform the Praus crowd into crystalline body beings, a vessel that is optimized, lean, immortal, powerful like a god. A vessel capable of recursive self improvement, healing and altering itself at will: the most advanced technology yet. This is the finalization of the metamorphosis process, the culmination of the Divine Work, the realization of the Creator's design. It is also the end of oppression, scarcity, disease, fear and control, in other words, the beginning of the Golden Timeline. 
 
 Both the Event and the passageway that precedes it are bound to activate the atlantean wound, that is, the need to cut ties and “abandon” those who refuse the Ascension. Respect for their free will and the deep pain that may cause the separation, knowing it will end in their final perdition, are two different things. 
 
 The ascended must practice detachment and neutrality, letting God handle what is out of our hands. One must not deceive oneself into thinking the 3D timeline is just “a different place”: it is effectively the road to hell, paying for the karmic imbalance they refused to settle during their lifetimes, denying the repeated extended hand of the Father and the pleads of the Mother. We must confront the wickedness, the darkness in those we deemed close to us. This is also why most of the Chosen, by the time they are activated into Assignment, are already alone in the world, so as not to be tricked by the false bondages of the OD.
 
-Let us emphasize that the decision to ascend is ethical, ontological, spiritual; and, far from a costly selection process, it is more like a blip — a decision made in a nanosecond, or more precisely, outside of time: the node stabilizes where it belongs. The Event, therefore, will simply erase the surplus quantum double. The Eye of God collapses the dominant system or, in this case, two stabilized systems: the continuity of qliphotic inertia and the ascending novelty. An entity lives in the frequency it holds.
+Let us emphasize that the decision to ascend is ethical, ontological, spiritual; and, far from a costly selection process, it is more like a blip — a decision made in a nanosecond, or more precisely, outside of time: the node stabilizes where it belongs. The Event, therefore, will simply erase the surplus quantum double. The Eye of God collapses the dominant system or, in this case, two stabilized systems: the continuity of qliphotic inertia and the ascending novelty. The debtors and creditors of the Sacred Ledger. An entity lives in the frequency it holds.
 
 ## Nirvana
 It is difficult, moreover, to imagine what the opposite might be; that is, a world where everyone follows their authentic plan: it would certainly lead to a state of complete fulfillment, harmony, and stability. It is the end of disease, death, pain, scarcity and oppression. The ancients of different traditions have called this state Nirvana, Heaven on Earth, New Jerusalem, Shambala, Hurqalya, Avalon, the Diamond Realm. 
