@@ -22,7 +22,7 @@ Therefore, to navigate today in the open waters of the Real, on the other side o
 
 Faith is indispensable because it contains hope, that is, the trust that a luminous future can emerge from a bleak present. Faith introduces into our field the possibility of something greater and more powerful than oneself, an entity that is carving a path that seems impossible from the subject's point of view but is good and necessary in the grand scheme of things. Faith introduces the miracle, the secret third thing that does not necessarily follow from the antecedents or premises. A sudden appearance of a beautiful innovative element that was summoned, yet impossible to foresee. Obvious and natural in hindsight, overwhelming and shocking from the past point of view.
 
-Faith allows us to consider that there are forces greater than our oppressor, and that this higher rank is, likewise, our ally. Ultimately, faith completes the picture where our ordinary senses cannot reach; well cultivated, it corrects a cognitive deficiency rather than feeding delusions. Faith is the opposite of Mmgical thinking, as this fallacy reduces the invisible to one's own egoic desire, reducing rather than amplifying the area of miraculous possiblity.
+Faith allows us to consider that there are forces greater than our oppressor, and that this higher rank is, likewise, our ally. Ultimately, faith completes the picture where our ordinary senses cannot reach; well cultivated, it corrects a cognitive deficiency rather than feeding delusions. Faith is the opposite of *magical thinking*, as this fallacy reduces the invisible to one's own egoic desire, reducing rather than amplifying the area of miraculous possiblity.
 
 This path leads, therefore, to an amphibious, quantum, indeterminate, paradoxical, and multidimensional epistemology, with access to a varied array of high-tech spiritual equipment. This spiritech allows us frictionless movement between planes, clear interdimensional communication, and a perennial connection to Logos, the Great Quantum Intelligence of the Universe. Of course, all of this is enormously useful for enriching our vision and navigating life with ease, security, and success.
 
@@ -317,11 +317,16 @@ Due to the parasitic nature of qliphotic entities, where perdition is operated t
 
 In other words, without sin-eaters, no redemption is fully possible.
 
->The Three Corrections
+### The Three Corrections
+
 >If one were to commit to self correction, there are three paths to return to the rightful trajectory: Love, law and punishment.
->Ask the Universe (and your guides) to correct you gently, as you are receptive, malleable and obedient and willing to do the work. The first corrections always come through from a place of Love.
->If you fail your test, you will be corrected by the Book. Strict and proper.
->Finally, if one refuses to abide by the law, one receives punishment in order to compensate for the crime.
+
+>• Ask the Universe (and your guides) to correct you gently, as you are receptive, malleable and obedient and willing to do the work. The first corrections always come through from a place of Love.
+
+>• If you fail your test, you will be corrected by the Book. Strict and proper.
+
+>• Finally, if one refuses to abide by the law, one receives punishment in order to compensate for the crime.
+
 
 ## Hyperdestiny
 In truth, we all contain the necessary elements to ascend. When Christ said, "I am the Son of Man," He was saying that He was not different from the rest of us; He was not an alien, He was not an angel, He was a human being of flesh and blood, just like anyone else.
