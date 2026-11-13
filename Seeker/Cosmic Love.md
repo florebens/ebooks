@@ -356,12 +356,80 @@ These trajectories are of utmost importance, not only for the training of the wa
 
 Every time an agent clears the space and holds their position, Light Source Code gets downloaded to the Earth's etheric field. These passageways are the Pillars of Light. Eventually, with enough pillars, the new grid will take over.
 
-It is fundamental to bear in mind that everything that works for Darkness, works necessarily for the Light. 
+It is fundamental to bear in mind that everything that works for the Darkness, works necessarily for the Light. With every attack, the Avatar will increase their powers, their rank, and their alchemical mastery, accelerating their evolution and earning them karmic credit to deploy the new grid later in the future.
 
+The 144,000 of the Diamond Order, a spiritual elite whose distinctive mark consists not in manifesting a life of objects, comfort, or superficial success, but a path: of authentic alignment, service, and self-mastery.
 
- 
+It is the difference between qliphotic material success, aka fame, money, and power, versus prestige, rank, and karmic reward — true crowning, an achievement homologated in the spiritual plane. This pinnacle is inscribed in solid rock, a golden seal carved in the avatar's energetic signature.
 
-xxxxxxxxx
+As these avatars activate, they will subvert the current status quo (inverted order), that is, the last shall be first: those who were formerly "nobody" — Bodhisattvas incognito — will begin to reveal themselves and assume their hierarchical positions, validating the spiritual order on the material plane. A peaceful, swift takeover, the Yin Revolution.
+
+This way, the avatar on a hyperdestiny trajectory truly belongs to humanity, in a role of maximum visibility, in order to guide the path of ascension. These are people with expanded consciousness and a pure spirit that channels the direct Light of the Source and, therefore, has full mastery of self and of the cosmos's dualities: power and responsibility, transparency and authenticity, solemnity and lightness, setting a precedent and a preamble to the community of sovereign souls, the diamond plane: that is, the gods at play.
+
+But reaching this, as we have seen, will not be easy. The path of the contemporary Bodhisattva entails, first of all, the arduous work of awakening, disconnecting, and exiting the matrix, all of this while navigating an all-out spiritual war.
+
+Many would stop there, this being a commendable achievement; however, at this point, the future Bodhisattva is just getting started. They must still traverse the Shadow, perform their katábasis, pass through the Seven Veils, reach the Nadir, overcome carbonic death, and complete the diamond resurrection.
+
+And return in one piece to assist.
+Timeline Structure and Warfare 
+What we are experiencing is the possibility of a fork towards humanity's Golden Timeline. Many people erroneously believe that there are infinite timelines, that each one of us produces whenever we choose coffee over tea every morning. Of course, this would be unsustainable: the cosmos would collapse in a nanosecond from all this timeline manifestation. 
+
+On the contrary, Logos is stingy with the material. Since anything and everything is possible, therefore only a select few items (timelines, agents, consciousnesses) are granted existence. Logos rationality is the Universe's Ockham razor. 
+
+Time, then, has its own economy. It takes the form of a tetrameter: a Baseline, with but a few possible alterations; the Opposite timeline, it's “negative”; and a Complementary Timeline of both the Baseline and its opposite. Every main strand has a handful of variants that exist very close to it; when people talk about “jumping timelines”, this is what they mean. Slightly better conditions, a different partner, an alternative route that lead to the same, unmovable fated milestones; basically, the same spiritual contract. Note that from the perspective of the incarnated avatar, this can look like drastic differences in the experience: from a six figure salary to poverty; a long lasting marriage versus two divorces, etcetera. But from the Universe's perspective this is irrelevant, it does not affect the structure. There is a bandwidth where a lifetime can occur, and free will is encapsulated within that strip. It takes a very strong anomaly to truly alter the timeline, and it is rarely an individual; mostly, collective decisions, movements, revolutions, a particularly poignant Zeitgeist. 
+
+The Universe does not entertain chaos, but it welcomes innovation, and actually relishes in the surprise element, since it is extremely rare. It would take an immense amount of skill (and courage and vision) to actually produce an anomaly that is approved by Universal Law, therefore withstanding as a perpetual element within the Cosmos structure. (Incidentally, this is what the Sacred Rebels are after.)
+
+Some timelines of this realm have been infected with the Qliphotic parasite. God and His Gardeners are deeply at work to sanitize, heal and restore them. This is why we are in a quarantine: both the Dark Forces want us isolated, cut from the divine connection, but also the Light needs to keep the dome in order to prevent a widespread infection, as in the universe everything is connected. This would explain the Fermi paradox, and why the visits are so discreet and distant.
+
+Timeline warfare is a group of tactics aimed at editing the tetrameter in order to produce a desired outcome. Some cosmic intelligences are expert editors, masterfully intervening the negative timeline, the complementary or even ghost timelines in order to affect the Baseline. It is a particularly insidious and effective tactic. However, the Divine and His Sacred Assistants prune the timelines constantly, the Garden of Eden is but a field of timelines. They nurture, they split, they seed, they eliminate. Mastering Time is tricky, as it presents several ontological risks and dilemmas, such as the ship of Theseus: how many interventions are valid before completely spoiling the original line?
+
+This is the meaning of Annunaki: not a race, but a rank, an occupation. Engineers of worlds. The Archons are the Architects, the Visionaries, the inspired artists. However both Archons and Annunaki are fluent in each other's field, and may take on certain roles or attributes on occasion.
+
+Annu means nine, as they are ninth-dimensional beings, expert engineers and crafters of worlds. Elohim is Seven, the Council of Seven. They are the Managers of this realm. The East and the West have different Admins and belong to different lineages, so no one Creation history is the unique truth. Earth today is a compendium of traditions from distant parts. 
+
+When the timeline reaches the vortex, the starting point of each branch, this is known as Ground Zero, the Escathon, the Portal. The timeline is mature. It blossoms and is transported into a different section, or dimension. 
+
+The Golden Timeline is humanity's highest civilization possible, our realized potential. It requires a collective shift of consciousness and the birthing and mastering of the crystalline body, the quantum mind, the unlimited powers of godhood on a material realm. The current timeline is so saturated in darkness, that can only birth the most radiant opposite: a collective alchemy endeavor. However this possibility is not a given, it will not just happen organically: we have to make it happen, actively anchor it and secure it. We must steward this ship to its rightful port, the correct gate at the precise timing. 
+
+## The Solar Flash and the Divine's Ockham Razor
+
+This timeline is approaching the Vortex. What many mystics anticipate, and have labeled as, the “solar flash”, is but the elimination of the OD. Once it is removed, the unobstructed, pure divine light will reach Earth once again, and penetrate every vessel, like a divine scanner, instantly eliminating inadequate avatars and culminating the activation of the successful ones: that is, *shevirat hakelim* via divine fertilization. The touch of the magic wand that transforms the object into a more radiant version, an evolved version, like Pinocchio or Cinderella. The masculine and feminine principles acting in unison, lock and key: the core building block of the universe. 
+
+It is a phase transition: the kiss of life on a new plane, and the kiss of death on the previous state. Logos is the diamond-point chisel of the cosmic womb, collapsing us into a defined state, lasering us into shape from a sea of infinite possibilities, and eliminating the redundancies.
+
+The solar flash acts as the Eye of the Needle, the Ankh: a portal of frequency, the filter, the razor that glides at throat height to measure the Golden Standard. Heads will be chopped, as they are exposed to the sharp feather of consequences. Ma'at will return in Her full Glory, radiant and pure and everything that cannot match her quality will be zapped out of the realm.
+
+Many will be overcome by fear, rage, confusion, wickedness. Others — the Praus, the disciplined ones, those who have Done The Work® — will be dancing and singing hymns to the Divinity, freed at last from the shackles of oppression and density. Their inner frequency will now match the environment, the distortion abjured, the serenity and joy boundless. 
+
+The Flash will instantly transform the Praus crowd into crystalline body beings, a vessel that is optimized, lean, immortal, powerful like a god. A vessel capable of recursive self improvement, healing and altering itself at will: the most advanced technology yet. This is the finalization of the metamorphosis process, the culmination of the Divine Work, the realization of the Creator's design. It is also the end of oppression, scarcity, disease, fear and control, in other words, the beginning of the Golden Timeline. 
+
+Both the Event and the passageway that precedes it are bound to activate the atlantean wound, that is, the need to cut ties and “abandon” those who refuse the Ascension. Respect for their free will and the deep pain that may cause the separation, knowing it will end in their final perdition, are two different things. 
+
+The ascended must practice detachment and neutrality, letting God handle what is out of our hands. One must not deceive oneself into thinking the 3D timeline is just “a different place”: it is effectively the road to hell, paying for the karmic imbalance they refused to settle during their lifetimes, denying the repeated extended hand of the Father and the pleads of the Mother. We must confront the wickedness, the darkness in those we deemed close to us. This is also why most of the Chosen, by the time they are activated into Assignment, are already alone in the world, so as not to be tricked by the false bondages of the OD.
+
+Let us emphasize that the decision to ascend is ethical, ontological, spiritual; and, far from a costly selection process, it is more like a blip — a decision made in a nanosecond, or more precisely, outside of time: the node stabilizes where it belongs. The Event, therefore, will simply erase the surplus quantum double. The Eye of God collapses the dominant system or, in this case, two stabilized systems: the continuity of qliphotic inertia and the ascending novelty. An entity lives in the frequency it holds.
+
+## Nirvana
+It is difficult, moreover, to imagine what the opposite might be; that is, a world where everyone follows their authentic plan: it would certainly lead to a state of complete fulfillment, harmony, and stability. It is the end of disease, death, pain, scarcity and oppression. The ancients of different traditions have called this state Nirvana, Heaven on Earth, New Jerusalem, Shambala, Hurqalya, Avalon, the Diamond Realm. 
+
+In our distorted world, desire-and-lack is the fundamental tension that propels us to action, in other words, dissatisfaction is our drive. This dynamic is sometimes sublimated in art or creative projects, but often also leads to crime and error.
+
+In Nirvana, the dynamic of lack and desire is replaced by curiosity and play, always resulting in instances of creativity. That is, advanced consciousnesses devote themselves to designing complex, diamond-like projects and their execution in stages. There is no time or interest in obstructing others: resources are unlimited, including time.
+
+Lack is thus revealed as a corollary of a false, simulated, unaligned life. It emerges from failing to fulfill any of the pre-established spiritual objectives or agreements, provoking a sensation of emptiness and guilt, of disorientation, of loss. Making sense from there, as the existentialist and absurdist philosophers proposed, is brave but insufficient, wherever the goal is liberation.
+
+For this reason, too, our spiritual ecosystem is charged with a dense and chaotic tangle of karmic energy, the product of this uncontrolled proliferation of relationships, objects, and timelines, without reference to or validation from the Master Design. The capacity of the dome is currently reaching saturation, a tipping point.
+
+## Ontological Exodus
+The Event, Eschaton, Ground Zero, marks the end of an eon, an era of humanity ruled by darkness, ignorance, fragmentation and entropy. An era of forgetting, violence, disease, corruption, pain, and death, to be succeeded by a golden era of harmony, coherence, creativity, and wellbeing, a state that humanity once knew and is to return to.
+
+Advanced civilizations — those whose monuments, buildings, and sculptures fill us today with wonder and awe — were advanced precisely because of their sustained state of coherence. In a state of  consistent, perfect synchronization of the human machine, of the abundant, uninterrupted, crystalline flow of their energy, the quantum mind is activated, as well as the diamantine body. What we today consider genius, polymathy, exceptional talent, in the diamond state is the norm. Any node can access the designs, knowledge, techniques, materials, and resources necessary to execute a project, as this is the true meaning of the word manifestation. Unlimited creativity, instantaneous materialization, recursive self actualization (self healing and improvement), in short, an expansive potential befitting the gods.
+
+For this reason, too, the scale of those milestones seems to us today immeasurable, incomprehensible, and that is only scratching the surface; who knows what time, water, or wind have erased, what traces of History are lost forever. Entire groups of people who knew how to reach and sustain advanced states of consciousness — that is, of coherence, energetic purity, integral self-mastery — contagiously spreading these luminous waves and resonating amongst each another, thus achieved a state of effortless sustenance of the individual and collective field. The Holy Grail.
+
+When admiring these works, then, we are confronted not only with the reminder of what we once managed to become, and could therefore achieve again. We are also witnessing the physical record of an ontological exodus, the milestones or markers left to us by civilizations that reached perfect internal and external alignment and crossed the interdimensional portal: the Maya, the Olmec, the Indus Valley, Göbekli Tepe and of course the Ancient Egyptians, although they didn't crossover collectively, only in small batches of royals, priests and scribes. The other failed attempt is famously Atlantis, a people who had unlocked the spiritual technology of the crystalline body without the ethical element in the mix. This is why this timeline fork is linked to Atlantis, a higher octave of their broken timeline, a recoup and restore operation. Wherever technology meets holiness, a Golden Civilization is born.
+
 
 # Conclusion
 
@@ -369,7 +437,7 @@ We shall open this section in the same way as every crucial sequence in the Bibl
 
 What we are traversing is truly phenomenal: a portal to a new humanity, more harmonious, more authentic and therefore diverse, more creative, more abundant, and sovereign. A hyper-humanity, or pure humanity expressed in its full power: free from oppression, distortion, abuse.
 
-What is asked of us in this hour is to work to burst the container open from within, that is, to surpass the old limits, prepare for the transformation. To begin to create, in our minds, in imagination, and in our immediate environment, the world we wish to inhabit.
+What is asked of us in this hour is to work towards bursting the container open from within, that is, to surpass the old limits, prepare for the transformation. To begin to create, in our minds, in the imagination, and in our immediate environment, the world we wish to inhabit.
 
 To evolve implies igniting the human machine, exploring its full potential, fulfilling the apotheotic promise, living as mini-gods.
 
