@@ -1,6 +1,6 @@
 # WILD EPISTEMOLOGIES (WIEP)
 
-### *Productive Psychosis, Shamanic OS and Endurance in the Ontological Desert*
+### *An Expanded Framework to Navigate Terminal Capitalism*
 
 **Florence Benson**
 Shevirat, 2026
@@ -19,7 +19,7 @@ Clinging to normalcy in the current times is nothing short of a flagrant liabili
 
 We are witnessing the dwindling of material and symbolic structures alike. Symbolic anemia and maximum anomie are the strategic pillars of a controlled demolition of the current reality. The goal is to dissolve the normative frameworks that anchor individual behavior to collective life. When the shared map degrades, the cognitive resources that would be needed for nuanced navigation get rerouted into survival response. Gramsci famously identified this as the *chiaroscuro*, very much like the Kali Yuga temporality in Hinduism cosmology.
 
-We're in the midst of a major cognitive crisis, where the individual naturally defaults to hypernormalization. Indeed, we are about to become the recipients of a cognitive explosive cocktail intended to shock and destroy any remaining capabilities to read the context correctly. 
+Society is in the midst of a major cognitive crisis, where the individual naturally defaults to hypernormalization. Indeed, we are about to become the recipients of a cognitive explosive cocktail intended to shock and destroy any remaining capabilities to read the context correctly. 
 We are in the age of the Simulacra, where rare books are fed to the LLMs and then destroyed. This mechanism will soon be applied to money and identity. The goal is to erase the baseline reality. To counter this attack you need your special vision set, the Shamanic OS. 
 
 Spirituality is, in fact, what remains when the social contract collapses and the monsters start lurking behind the stage. Upon this scenario, we are called to restore the Unseen within our systems of navigating the world, to reframe the humanities in order to accommodate the metaphysical substrate of our living experience. The issue is time-sensitive: can we domesticate our faith in time, or shall we be devoured by our telluric, pre-rational beliefs?
@@ -34,14 +34,14 @@ This Great Transition is, if nothing else, an invitation to evolve. In order to 
 
 **WIEP** stems from the conviction that the most dangerous cognitive error of our time is not irrationality but incompleteness. The available mainstream toolkit is narrow, it excludes entire registers of reality. What we are building here is an extension of that toolkit, one that does not discard rigor but expands what rigor is asked to hold.
 
-**Wild Epistemologies** is proposing a "psychosis gone right", aka the Sacred Madness of the Shaman as systematic heuristics and hermeneutics routes to navigate beyond the cozy structure of normative epistemology. The concept of sustaining two states simultaneously, without imploding into cognitive dissonance. To train the capacity to endure long, deep, mystical trances while running errands — this is what a novelist does, actually. 
+**Wild Epistemologies** is proposing a "psychosis gone right", aka the Sacred Madness of the Shaman as systematic heuristics and hermeneutics routes to navigate beyond the cozy structure of normative epistemology. The concept of sustaining two states simultaneously, without imploding into cognitive dissonance. To train the capacity to endure long, deep, mystical trances while running errands — this is what a novelist does, actually, or a scientist, or a monk. 
 
 **WIEP** encourages the era of the mystic with a STEM processor, an Embodied Polymath: the organic version of ASI (Artificial Superintelligence).
 
 
 ## II. Ontological Survivalism
 
-Prepping for Terminal Capitalism — the assorted sources of non-trivial terminal risk live at the present moment, such as AI, climate crisis, geopolitical conflict escalation, a looming global economic reset — means building a rich, robust framework that will uphold ontological coherence by adequately reincorporating the irrational, metaphysical substrate of the human experience.
+Prepping for **Terminal Capitalism** — the assorted sources of non-trivial terminal risk live at the present moment, such as AI, climate crisis, geopolitical conflict escalation, a looming global economic reset — means building a rich, robust framework that will uphold ontological coherence by adequately reincorporating the irrational, metaphysical substrate of the human experience.
 
 Think of it as activating our dormant shamanic template, which contains a sharp skillset to thrive in the liminal, the undetermined, the mysterious and the radically new existential parameters that the species shall be facing in the not too far horizon. The shamanic headset features foresight, a strong connection to the ground and the elements, pattern recognition extended beyond the veil, strength, resilience, and a flare for the miraculous save. In short, one is acknowledged by the Field as a certified interdimensional operator.
 
@@ -51,9 +51,9 @@ In other words, the desert of the real requires a new vision set, an expanded fr
 
 Enter ontological survivalism, the practice of building and maintaining a cognitive and symbolic architecture that can hold its shape under conditions of extreme institutional failure.
 
-The philosopher Charles Taylor described the modern condition as one of "malaise" arising from the flattening of the horizon of significance. What he saw as cultural drift, we are now experiencing as targeted dismantling. The response is not to restore what was flattened. It is to build a framework robust enough that it does not depend on institutional backing to remain coherent. The structure that still stands when everything else is collapsing is not made of dogma, it is made of range.
+The philosopher Charles Taylor described the modern condition as one of "malaise" arising from the flattening of the horizon of significance. What he saw as cultural drift, we are now experiencing as targeted dismantling. We must recover our Sacred Stories, our Myths and poems, in order to restore the richness and depth of our cultural rooting on this earth. The symbolic anemia and radical anomie are producing a life of pure Simulacra, where the image is a spectre, a bidimensional, binary surface that has no hold on any substantial reality. It does not resemble or trace back to corporality, not even in the chain of significants. The density of history, society and heat are reduced to an icon. The films only reproduce the same story, the same franchise, the same actors, over and over again. Music is autotuned and fractioned into followers and views. This way, the social semiosis is reduced to a repetitive loop of the same four or five items, seriously damaging the cognitive and critical thinking abilities of the psyche. 
 
-The contemplative traditions understood something about this that modern cognitive science is only beginning to formalize. Sustained attentional practice produces measurable changes in neural architecture. The capacity to remain grounded, to process complexity without fragmentation, to read pattern in noise, is not a gift distributed unevenly at birth. It is a technology.
+The response is not to restore what was flattened. It is to build a framework robust enough that it does not depend on institutional backing to remain coherent. The structure that still stands when everything else is collapsing is not made of dogma, it is made of range. The contemplative traditions understood something about this that modern cognitive science is only beginning to formalize. Sustained attentional practice produces measurable changes in neural architecture. The capacity to remain grounded, to process complexity without fragmentation, to read pattern in noise, is not a gift distributed unevenly at birth. It is a technology.
 
 
 
@@ -61,11 +61,13 @@ The contemplative traditions understood something about this that modern cogniti
 
 Everyone is a shaman. We forfeited the qualities and the access in the name of specialization.
 
-The West has blocked all roads to the noumen, stationed churches and temples with official bureaucracy on dead ends: the priest that solely performs predetermined miracles in a preset context, and the pastor as motivational speaker with theological framework.
+The West has blocked all roads to the *noumen*, stationed churches and temples with official bureaucracy on dead ends: the priest that solely performs predetermined miracles in a preset context, and the pastor as motivational speaker with theological framework.
 
 God is not there. Growth is not there.
 
-In the anthropological record, the shaman holds a specific cognitive role: the generalist at the edge of the community, the one whose function is to move between registers, to translate between the visible and the structural, the individual and the field. What the institutionalization of religious life produced, over centuries, was the systematic routing of that function through official channels. The result is a population that has outsourced its capacity for direct epistemic encounter with the dimensions of reality beyond the simulation.
+Centralized religion — not *organized*, because there is absolutely nothing wrong with a community that finds structure in order to conquer Time — is but a loyalty contract enforced by rituals and a lifestyle police. Jesus Christ Himself condemned these characteristics openly and repeatedly, in no uncertain terms. The hypocrisy and extreme legalism, pure formality without spirit, regulations so precise and extreme that left no room for the heart. This is perhaps what drove the young Rabbi away from the Pharisees and Sadducees, and drove him instead towards the Essenes and into the desert. 
+
+On the opposite side of the spectrum, in the anthropological record the shaman holds a specific cognitive role: the generalist at the edge of the community, the one whose function is to move between registers, to translate between the visible and the structural, the individual and the field. What the institutionalization of religious life produced, over centuries, was the systematic routing of that function through official channels. The result is a population that has outsourced its capacity for direct epistemic encounter with the dimensions of reality beyond the simulation.
 
 The Shamanic OS is not archaic, but genetic. It is an attentional mode, a perceptual bandwidth, a set of cognitive capacities for navigating information environments that are opaque, contradictory, or moving faster than linear analysis can track. These capacities were never supernatural. They were always trainable, always present as latent human potential, and they were deliberately marginalized because they are, by nature, decentralized. You cannot broker what everyone can access directly.
 
@@ -97,7 +99,7 @@ What modernity pathologized as a failure of reality-testing, the philosophical t
 
 What the psychotic dimension reveals, when it is entered with a compass rather than in spontaneous freefall, is that this realm of experience is but one among several. The map is not the territory. The consensus map is a collective agreement about which features of the territory to render visible.
 
-A schizophrenic is a church of one because the synchronization mechanisms have failed and the individual is left with a private cosmology, lacking the equipment to secure coherence, integrity and legibility while traversing the wild pastures of the unseen realms. Sink or swim, a lunatic or a shaman. The difference between them is merely how they navigate the same waters, one with tools and delight, the other with bare-handed anguish.
+A schizophrenic is a church of one, because the synchronization mechanisms have failed and the individual is left with a private cosmology, lacking the equipment to secure coherence, integrity and legibility while traversing the wild pastures of the unseen realms. Sink or swim, a lunatic or a shaman. The difference between them is merely how they navigate the same waters, one with tools and delight, the other with bare-handed anguish.
 
 The stigma of falling in uncharted waters belongs in the superstitious esoterophobia; there is no wrong topology, just inadequate gear. Skill issue.
 
@@ -123,7 +125,7 @@ Solar grammar produces systems, lunar grammar produces miracles. A reliable, con
 
 
 
-## VI. The Human Takeoff
+## VI. Hyper-humanization, or the Human Takeoff
 
 Takeoff is the threshold of recursive self actualization, a reprogramming loop deliberately designed for optimization. The Alchemist transmuting lead into gold in the crucible is, at the same time, being refined by the mastery of the practice. The Alchemist and the Gold are one and the same.
 
@@ -146,4 +148,4 @@ Destination: Evolution.
 **Shevirat**
 *Spiritual Technology for Conscious Evolution*
 
-CC BY 4.0 · Florencia Benson
+CC BY 4.0 · Florence Benson
