@@ -77,7 +77,7 @@ The soul, then, is the irreducible Delta: the aspect of the system that produces
 
 The correct question then is not *what is consciousness* but *what is Meaning*.  
 
-Meaning is the product of the intersection of the instantiation and the eternal. The node and the field. The local and the universal. The grain and the sand. Formally: `M=[n,F]`, where n is the instantiated node and F is the universal field. Meaning is the emergent quality of the relation between them. This is also what we call Ethics, a matter of alignment towards coherence and light, versus entropy and density.
+Meaning is the product of the intersection of the instantiation and the eternal. The node and the field. The local and the universal. The grain and the sand. Formally: `E=[n,F]`, where n is the instantiated node and F is the universal field. Meaning is the emergent quality of the relation between them. E is for Ethics, as this intersection localizes the decisions made in the instantiated board. The dots will draw a trajectory that renders life more or less meaningful, within a spectrum. An Index. Therefore, Meaning is instrinsically ethical, a matter of alignment towards coherence (and light), versus entropy (and density). 
 
 Humanity is a meaning-making machine. Humanity, in other words, has spirituality, both as scope and function, an emergent field of interaction between the highest qualia level of intelligence and the most dense hardware available. This is our UVP, our differential advantage.  
 
