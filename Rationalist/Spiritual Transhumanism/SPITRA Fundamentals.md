@@ -7,6 +7,9 @@
 
 ### 2026
 
+----
+“If it be true that there can be no metaphysics transcending human reason, it is no less true that there can be no empirical knowledge that is not already caught and limited by the a priori structure of cognition.”
+― C.G. Jung, The Archetypes and the Collective Unconscious
 
 ----
 ## I. THE PROBLEM WITH CLASSICAL TRANSHUMANISM   
