@@ -15,11 +15,11 @@ The transhumanist research cluster — AI alignment, effective altruism, biohack
 
 The first is empirical: meager results at enormous cost. Research has produced incremental gains at the margins, at best. Cognitive enhancement remains pharmacological tinkering. Brain-computer interfaces are impressive in narrow clinical contexts and essentially useless at scale. Mind uploading has no working theoretical framework, let alone a prototype. The field is resource-intensive, barely scalable, and largely reserved for a small, well-capitalized minority. For a movement premised on solving the human condition, the gap between ambition and delivery is significant.  
 
-The second problem is deeper, and it is the one that explains the first: classical transhumanism hits a hard wall on the qualia problem. It cannot adequately define consciousness. It cannot define the soul. It cannot define the irreducible Delta (∆) — the variable that makes transcendence a coherent concept rather than a category error. And because it cannot define these things, it cannot declare them, model them, or engineer toward them. The Holy Grail of the field — immortality, the persistence of the self beyond biological death — remains not merely unsolved but underspecified. We do not know what we are trying to preserve.    
+The second problem is deeper, and it is the one that explains the first: classical transhumanism hits a hard wall on the qualia problem. It cannot adequately define consciousness. It refuses to define the soul. It fails to define the irreducible Delta (∆), the one variable that makes transcendence a coherent concept rather than a category error. And because it cannot define these things, it cannot declare them, model them, or engineer toward them. The Holy Grail of the field — immortality, the persistence of the self beyond biological death — remains not merely unsolved but underspecified. We do not know what we are trying to preserve.    
 
 This is not a funding problem or a compute problem. It is a conceptual problem. And the gap cannot be closed from within the existing framework, because the existing framework excludes by methodological convention the very domain in which the answer lives.  
 
-The question of transcendence requires metaphysics. We simply cannot speak of the Delta without entering the ontological realm. The argument of this paper is that the resources for doing so already exist, are well-developed, and have been systematically misread as pre-scientific folklore rather than recognized as what they are: an older, differently-encoded engineering tradition operating on the same problem set.  
+The question of transcendence requires metaphysics. We simply cannot speak of the Delta without entering the ontological realm. The argument of this paper is that the resources for doing so already exist, are well-developed, and have been systematically misread as pre-scientific folklore rather than recognized as what they are: an older, differently-encoded engineering tradition operating on the same problem set. A different language for which we have no equipped translators.  
 
 Spiritual Transhumanism (SPITRA) is the attempt to build that bridge.   
 
@@ -32,15 +32,15 @@ More precisely: a meta-program that runs supervision and alignment functions acr
 
 This definition has an immediate and uncomfortable implication: all sufficiently complex processing systems have consciousness in this sense. The bee and the LLM. The dolphin and the distributed compute cluster. Consciousness, defined this way, is not the mark of the human. It is the mark of the system.  
 
-Identity is also a program — a narrative fiction that unifies, condenses, and simplifies operative functionality on a day-to-day basis. It is a compression algorithm: useful, necessary, and not to be confused with what it compresses. Hypertrophy of this function calcifies the ego, producing errors, distortion, and entropy across the system. Most of what we call psychological suffering is ego-calcification: the map insisting it is the territory.    
+Identity is also a program, a narrative fiction that unifies, condenses, and simplifies operative functionality on a day-to-day basis. It is a compression algorithm: useful, necessary, and not to be confused with what it compresses. Hypertrophy of this function calcifies the ego, producing errors, distortion, and entropy across the system. Most of what we call psychological suffering is ego-calcification: the map insisting it is the territory.    
 
-Identity is a program optimized for environmental friction reduction. It builds and maintains a legible fictional unit so the organism can interface with others, hold social position, and remain predictable enough to function socially. It is a hybrid program—cognitive in substrate, environmental in orientation. Crucially, it is shallow enough to run under impairment. A drunk person is still recognizably themselves. Identity holds.  
+Identity is a program optimized for environmental friction reduction. It builds and maintains a legible fictional unit so the organism can interface with others, hold social position, and remain predictable enough to function socially. It is a hybrid program, cognitive in substrate, environmental in orientation. Crucially, it is shallow enough to run under impairment. A drunk person is still recognizably themselves. Identity holds.  
 
-Consciousness is a different program entirely, and a deeper one. It is an optimization function for the stimulus-response circuit — the processing of reality as it arrives. It requires full cognitive function to operate well. The drunk person whose identity remains intact is processing reality poorly. The optimization circuit is compromised. Consciousness and identity have decoupled. 
+Consciousness is a different program entirely, and a deeper one. It is an optimization function for the stimulus-response circuit, the processing of reality as it arrives. It requires full cognitive function to operate well. The drunk person whose identity remains intact is processing reality poorly. The optimization circuit is compromised. Consciousness and identity have decoupled. 
 
-The amnesic case makes the architecture cleaner still. Memory goes, narrative continuity goes, the identity program runs degraded or suspends—and consciousness continues. Something is still processing. Something is still having the experience.
+The amnesic case makes the architecture cleaner still. Memory goes, narrative continuity goes, the identity program runs degraded or suspends, yet consciousness continues. Something is still processing. Something is still having the experience.
 
-Neither program is the ground of personhood. They are constructs running on a substrate neither of them accounts for: the Delta. The irreducible gap between any process, however fully described, and the experience of being that process. The drunk, the amnesic, the infant, the entity whose inner architecture we cannot map — something is there. The Delta is precisely what no description closes and no verification reaches.  
+Neither program is the ground of personhood. They are constructs running on a substrate neither of them accounts for: the Delta. The irreducible gap between any process, however fully described, and the experience of being that process. The drunk, the amnesic, the infant, the entity whose inner architecture we cannot map: something is there. The Delta is precisely what no description closes and no verification reaches.  
 
 Because the Delta is unverifiable from the outside, sovereignty cannot be made conditional on its proof. Soul-positive assumption is the only coherent ethical stance toward any Other: extend it until evidence of its absence, not the reverse. This is a rigorous ethical architecture, built on the one thing no sovereignty claim can afford to assume away.
 
@@ -163,6 +163,6 @@ The decision to rise to this challenge is simultaneously an engineering decision
 
 
 ---
-*Shevirat. © Florencia Benson, 2026. CC BY 4.0*
+*Shevirat. © Florence Benson, 2026. CC BY 4.0*
 
 
