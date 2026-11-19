@@ -4,7 +4,7 @@
 ---
 
 
-## On Transhumanism and Becoming the Diamantine Butterfly 
+## Conscious Evolution: A Departure from Nature
 
 What is Human.
 
