@@ -1,6 +1,6 @@
 # SPIRITUAL TRANSHUMANISM  
 
-### Terminal Risk, Consciousness, and the Case for Carbon-Based Enhancement  
+### Consciousness, AI and the Case for Carbon-Based Enhancement  
 
 
 ## By Florence Benson  
