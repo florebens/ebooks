@@ -4,7 +4,7 @@
 ---
 
 
-## On Becoming the Diamantine Butterfly 
+## On Transhumanism and Becoming the Diamantine Butterfly 
 
 What is Human.
 
