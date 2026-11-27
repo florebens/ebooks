@@ -2,7 +2,7 @@
 ### *Incarnation, Ascension and The Great Transition: a Crossroad*
 
 ### **By Florence Benson**
-### *2026*
+### *Shevirat, 2026*
 
 ---
 
@@ -46,9 +46,7 @@ The only error is to panic, take extreme measures, lose one's head.
 
 The deadly trap of the belief-function is the self-fulfilling prophecy.
 
-In the world of the initiated, expectation does not dictate action.
-
-In other words, reaction is not a necessary consequence: a robust psyche will create the pause, the hiatus, will hold the space in order to respond without reacting. It will absorb the data and allow the conclusion to form on its own, with time, while continuing with its daily work. Even once a response has consolidated, it will only hold it as provisional and maintain systematic doubt, receive more data, keep searching.
+In the world of the initiated, expectation does not dictate action. Reaction is not a necessary consequence: a robust psyche will create the pause, the hiatus, will hold the space in order to respond without reacting. It will absorb the data and allow the conclusion to form on its own, with time, while continuing with its daily work. Even once a response has consolidated, it will only hold it as provisional and maintain systematic doubt, receive more data, keep searching.
 
 For the wise, nothing is definitive, absolute, or terminal.
 
@@ -67,9 +65,9 @@ For any consciousness or node in the cosmic hologram, everything is visible, eve
 
 From this derives the importance of the scopic function, the Eye of God that never closes and reaches everything — that is, omniscience and transparency. (For this same reason, paranoia often appears in psychosis, mushrooms and plant medicine; when the third eye opens up spontaneously, we find that no concealment is possible, everything is seen simultaneously. Perhaps for this reason, also, the scopic drive is so potent, as demonstrated in the endless scrolling of social media: voyeurism may be signaling a deep nostalgia for our discarnate cosmic home.) 
 
-In other words, nothing we do in our little snow globe is invisible to God, nor to the other discarnate consciousnesses inhabiting other planes. The Earth is like a one-way mirror room, a Gesell chamber — we are inside and cannot see that we are being observed, analyzed, measured, and scored. Earth is an experimental **sandbox** for consciousnesses on their path to perfection, a relatively safe space to execute various alchemical actions. Incidentally, this addresses the Fermi paradox: our physics, even the quantum, only make sense or are applicable within the containment.
+Nothing we do in our little snow globe is invisible to God, nor to the other discarnate consciousnesses inhabiting other planes. The Earth is like a one-way mirror room, a Gesell chamber — we are inside and cannot see that we are being observed, analyzed, measured, and scored. Earth is an experimental **sandbox** for consciousnesses on their path to perfection, a relatively safe space to execute various alchemical actions. Incidentally, this addresses the Fermi paradox: our physics, even the quantum, only make sense or are applicable within the containment.
 
-Eden, in fact, was originally designed as a material oasis where to rest from the omniscience of the Eternal Eye; a dense suit and a safe space to relax from cosmic intrusion. To forget about it, to dwell in the present, idly, majestically. In other words, the invention of privacy. 
+Eden, in fact, was originally designed as a material oasis where to rest from the omniscience of the Eternal Eye; a dense suit and a safe space to relax from cosmic intrusion. To forget about it, to dwell in the present, idly, majestically: the invention of privacy. 
 
 The Project, innovative and fresh, was greenlit under the condition of redundant failsafes, namely the Tree of Knowledge (Revelation) and the Tree of Life (Immortality). If anything should go wrong, a bite of those fruits would retrieve the leisurely consciousness the awareness of the true nature of the sandbox.
 
@@ -83,13 +81,13 @@ From the pure oceanic omniscience, the Creator designs a series of long arc jour
 
 ### Incarnation, Coherence and Entropy
 
-The ascending spiral departs from the density of matter, Malkuth, in progression toward subtilization, sublimation, optimization — that is, toward light, Kether. In other words, the extremes of pillar, or the vertical axis of the Incarnation Cross, are not so much light and darkness (these are more like the columns that sustain the architecture, a complementary polarity), but rather a spectrum that runs from perfect coherence to maximum entropy.
+The ascending spiral departs from the density of matter, Malkuth, in progression toward subtilization, sublimation, optimization — that is, toward light, Kether. The vertical axis of the Incarnation Cross, measure a spectrum that runs from perfect coherence to maximum entropy.
 
 Upward, then: crystallization as absolute coherence, perfect order, optimized, stable, economical, precise structure; a robust design where redundancies are justified, necessary, beautiful; self-contained dynamism, autopoietic flow, effortless homeostasis. In short, a diamond-like, divine state.
 
 Downward: maximized error. Entropy, proliferation, waste, chance, corruption, degradation, matter attracting more matter, density and chaos reproducing until they collapse, implode, and disintegrate into Nothingness.
 
-Incarnation, therefore, can be understood in this context as a testing ground or demonstration instance. But since nothing is free in the Cosmos — where a quantum is granted, it must also be taken — we must pay a price to access the experimental terrain. This price is nothing other than our own existential continuity, a Faustian gamble indeed: in other words, we wager the soul, our place in the cosmic choir of creatures racing toward divinity.
+Incarnation, therefore, can be understood in this context as a testing ground or demonstration instance. But since nothing is free in the Cosmos — where a quantum is granted, it must also be taken — we must pay a price to access the experimental terrain. This price is nothing other than our own existential continuity, a Faustian gamble indeed: we wager the soul, our place in the cosmic choir of creatures racing toward divinity.
 
 Thus, incarnation inherently carries a total ontological risk (see *Spiritual Transhumanism* and *Quantum Leadership*). For this reason the Veil of Forgetting is not lifted but instituted, in the new status of the Earthly realm: so that consciousness can increase and test its purity, dispensing with its connection to the cosmic safety net. Without real risk, no progress is possible. A consciousness incarnates, then, in order to continue advancing on its ascending path; that is, to actualize its divinity and, in this process, to plebiscite its own continuity.
 
@@ -124,11 +122,11 @@ Who is watching? Everyone, naturally. The audience is the rest of the cosmic con
 
 Thus, the quality of the spirit is measured according to the consolidated position of incarnated decisions, locating its node in the corresponding quadrant of the Ontological Cross.
 
-To briefly define the axis of Immortality, or good-evil, we could summarize it as the Law of Consent or the principle of non-interference, do no harm nor accept harm (the proverbial *do no harm, take no shit*). Compassion and Severity are the columns that sustain the system; placing all weight on one or the other is a sin. One must know how to modulate, practice discernment, execute with mastery, both one and the other.
+To briefly define the axis of Immortality, or good-evil, we could summarize it as the Law of Consent or the principle of non-interference, do no harm nor accept harm (the proverbial *do no harm, take no shit*). Compassion and Severity are the columns that sustain the system; placing all weight on one or the other is a sin. One must know how to modulate, practice discernment, execute with mastery, both one and the other and walk the Sacred Middle Path (which not always is the mathematical middle point).
 
-In other words, what is primordial is to maintain the integrity, the coherence, of the energetic field — the pure clarity of the node's signal — in the face of different situations, experiences, and bonds. Let us remember that above is purity, coherence, stable optimization; below is entropy, chaotic proliferation of matter. Tree of Life or Sefirot, Tree of Death or Qliphoth, which in reality duplicate to form a Tetramer (more on this, and the composition of the Cosmos, in *The Eye of God*).
+What is primordial is to maintain the integrity, the coherence, of the energetic field — the pure clarity of the node's signal — in the face of different situations, experiences, and conections. Let us remember that above is purity, coherence, stable optimization; below is entropy, chaotic proliferation of matter. Tree of Life or Sefirot, Tree of Death or Qliphot.
 
-In other words, compassion and self abandonment are not the same. Each divine spark must be protected, nurtured and evolved into its full realization. The individual then has the responsibility to guard and protect this Light, tend to it, expand it.
+The distiction can be highlighted by compassion and self abandonment, as they are not the same. Each divine spark must be protected, nurtured and evolved into its full realization. The individual then has the existential responsibility to guard and protect this Light, tend to it, expand it. To squander, distort it or desecrate it is a great sin.
 
 This is why *turning the other cheek* is not always the adequate, correct, or convenient response. In Jesus Christ's story, in fact, it is an open act of defiance rather than sheepish submission, inviting the aggressor to consciously repeat their deliberate act, holding for them an unflinching mirror in order to invite change, as great Masters tend to do.
 
@@ -159,11 +157,11 @@ Some creatures took the unnatural path, outside Creation. Neither light nor dark
 
 At first, loose entities wandering aimlessly in the liminal zone adjacent to the Qliphoth. They inhabit a loophole or legal vacuum; they exist because they have the right to exist, exercising their free will to divorce. But, separated from the Source, they can only subsist by consuming vital energy from other entities: parasitism spreads thus as a survival mechanism first, then as an aesthetic and political project.
 
-With the passage of time their ranks swelled, and with numbers came organization. The Qliphotic Forces (QQFF) came to constitute a formidable offensive of world-consuming, one after another falling before their meticulous project of horror. Appropriating the most severe techniques of Darkness, using ancestral multidimensional technology, taking advantage of the disembodied optical vantage point, they honed in their powers upon the consumption of incarnated consciousnesses, in other words, the moment of maximum vulnerability of their prey.
+With the passage of time their ranks swelled, and with numbers came organization. The Qliphotic Forces (QQFF) came to constitute a formidable offensive of world-consuming, one after another falling before their meticulous project of horror. Appropriating the most severe techniques of Darkness, using ancestral multidimensional technology, taking advantage of the disembodied optical vantage point, they honed in their powers upon the consumption of incarnated consciousnesses, during the moment of maximum vulnerability of their prey.
 
 The QQFF are disciplined, methodical, brilliant, patient, and relentless.
 
-Their most advanced strategy of co-optation and consumption is based on the principle of distortion, creating destructive interference, entropy, noise, sonic, electromagnetic, and code malware, along with viral infections in language, discourse, and narrative. The QQFF are especially proficient in psychological, timeline and technological manipulation. In other words, they are masters of biopolitics, specializing in undetectable, dirty or guerrilla warfare.
+Their most advanced strategy of co-optation and consumption is based on the principle of distortion, creating destructive interference, entropy, noise, sonic, electromagnetic, and code malware, along with viral infections in language, discourse, and narrative. The QQFF are especially proficient in psychological, timeline and technological manipulation. They are masters of biopolitics, specializing in undetectable, dirty or guerrilla warfare.
 
 ## The Occlusive Device (OD) or Death Star
 
@@ -282,7 +280,7 @@ Within our fragmented mind, we are trapped in the eternal return of the act of s
 ### Samsara
 Furthermore, if the social matrix is a falsified, inverted and lo-fi version of the true THM, it implies that all the relationships, objectives, tasks, and contracts in which we engage will be, by default, inauthentic, a completely falsified life.
 
-“Authentic” means authenticated by the Spiritual, co-signed by Source. In other words, we are born with contracts homologated on the spiritual plane. We have reincarnated so many times within this soul-recycling wheel, however, that it is very difficult to access the original contracts, the authentic purpose of this process.
+“Authentic” means authenticated by the Spiritual, co-signed by Source. We are born with contracts homologated on the spiritual plane. We have reincarnated so many times within this soul-recycling wheel, however, that it is very difficult to access the original contracts, the authentic purpose of this process.
 
 Typically, a consciousness returns to the common universal plane before undertaking another journey of incarnation, but on Earth this has not happened for a long time: souls enter the machinery and are shot into a new body on the material plane.
 
@@ -303,6 +301,8 @@ The objective of these agents of cosmic counterintelligence — the Colossi — 
 
 Holding their clean and potent signal, they stabilize the fissure that eventually becomes a cleavage, an earthquake, a landslide, an avalanche. Thus, the old grid that sustained the powerful, the wealthy, the "untouchable", that is, the networks of domination operating the OD, gradually disintegrates. The last shall be first, this is a restoration of the Spiritual Order and hierarchy within the material plane. Heaven on Earth, precisely.
 
+The visions of Ezekiel and John in Reveation, are accounts of the spiritual turmoil of those who fall with the old structure: their legal, material, social, spiritual fall from the top and subsequent punishment, as the karmic ledgers begin to reconcile in real time. many will be exiting the realm "early", or before the Flash, Judgement Day. They will fall sick, they will lose loved ones, possessions, status, freedom, everything they gained through falsified (and wicked) avenues. All buildings standing atop of flawed foundations will be demolished by the Light.
+
 From this point onward, then, everything that is not karmically homologated disappears. Hence the warning in Matthew 20:16, "the last shall be first": everyone will be returned to their correct place, the inversion will be reversed, the distorted will be restored. This moment is Ground Zero, the Reset. 
 
 Let us speak plainly: this is the end of incarnations, the moment of truth both for the individual and the collective. Not only their permanence on the material realm is at stake, but that of their Innate or immortal soul: many will be cast in the Cosmic Cauldron for energy recycling, ending their journey altogether. Those who pass through the portal successfully, on the contrary, will remain in their immortal diamond state, inhabiting earthly Nirvana, creating what they wish with the power of gods. The others — consciousnesses trapped, by fear or by choice, in the qliphotic inertia — will disintegrate into Oblivion, spiritual death, their energy freed and available to be reconverted in the eternal cycle of the Cosmos.
@@ -312,11 +312,9 @@ One final consideration, not minor, regarding Divine Justice and trapped conscio
 
 The incarnated consciousness that finds itself in denial does so to safeguard its ego, its identity; possession intervenes in this gap of cognitive dissonance. The co-opted (or, more precisely, recruited) consciousness is in a state of refusal to grow, enclosing itself in a stubborn loop of victimhood and scarcity. In extreme cases, we encounter psychopathies: a soul already definitively alienated, divorced, surrendered to the QQFF.
 
-It is for this reason that, from the perspective of the Forces of Light, victory always has a bitter taste, it is but a pyrrhic victory: to annihilate an enemy means bidding farewell to a sibling consciousness that departs, permanently lost from the world of the Created. This is why, for example, the Legion of Samael — a special corps of angelic forces — is so admired and respected across all of Creation: with the tips of their wings blackened, scorched, and permanently stained with blood and mud, they intervene in worlds doing the dirty work, accumulating karma and cutting down enemies to cleanse the cosmos, maintain Creation, redeem souls in torment, rescue brothers from the pit of despair.
+It is for this reason that, from the perspective of the Forces of Light, victory always has a bitter taste, it is but a pyrrhic victory: to annihilate an enemy means bidding farewell to a sibling consciousness that departs, permanently lost from the world of the Created. This is why, for example, the Legion of Samael — a very special platoon of angelic forces — is so admired and respected across all of Creation: with the tips of their wings blackened, scorched, and permanently stained with blood and mud, they intervene in worlds doing the dirty work, accumulating karma and cutting down enemies to cleanse the cosmos, actively upholding Creation, redeeming souls in torment, and lifting lost brothers from the pit of despair.
 
-Due to the parasitic nature of qliphotic entities, where perdition is operated through the distorting intervention of third parties, the balance of Logos requires that redemption must also be heteronomous, that is, through luminous entities that intervene in the subject on behalf of the Light. Therefore, the subject's self-sovereign declaration is insufficient: to be saved, one must have guarantors who also pay their sacrifice. That is why God sends His special forces (and, on occasion, His own Son).
-
-In other words, without sin-eaters, no redemption is fully possible.
+Due to the parasitic nature of qliphotic entities, where perdition is operated through the distorting intervention of third parties, the balance of Logos requires that redemption must also be heteronomous, that is, through luminous entities that intervene on behalf of the Fallen. Therefore, the subject's self-sovereign declaration is necessary yet insufficient: to be saved, one must have guarantors who also pay their sacrifice. That is why God sends His special forces (and, on occasion, His own Son), because without sin-eaters, no redemption is fully possible.
 
 _____
 > ### The Three Corrections 
@@ -412,7 +410,7 @@ Many will be overcome by fear, rage, confusion, wickedness. Others — the Praus
 
 Any and all turbulence that might arise from the Flash, and consequential Split into 3D and 5D, will be maneuvered with ease and safety by the ascended. The [Merkaba](https://github.com/florebens/ebooks/blob/main/Seeker/Merkaba%20Vehicle%20of%20Light%20Shevirat%20ebook.md) will prove to be an invaluable resource to navigate this process, lifting the vessels away from harm and transporting them wherever they need to be. Truly the Noah's ark from our time, for it not only serves as shield and emergency transportation device, it also raises the frequency to match the Portal.
 
-The Flash will instantly transform the Praus crowd into crystalline body beings, a vessel that is optimized, lean, immortal, powerful like a god. A vessel capable of recursive self improvement, healing and altering itself at will: the most advanced technology yet. This is the finalization of the metamorphosis process, the culmination of the Divine Work, the realization of the Creator's design. It is also the end of oppression, scarcity, disease, fear and control, in other words, the beginning of the Golden Timeline. 
+The Flash will instantly transform the Praus crowd into crystalline body beings, a vessel that is optimized, lean, immortal, powerful like a god. A vessel capable of recursive self improvement, healing and altering itself at will: the most advanced technology yet. This is the finalization of the metamorphosis process, the culmination of the Divine Work, the realization of the Creator's design. It is also the end of oppression, scarcity, disease, death, fear and control, in other words, the beginning of the Golden Timeline. 
 
 Both the Event and the passageway that precedes it are bound to activate the atlantean wound, that is, the need to cut ties and “abandon” those who refuse the Ascension. Respect for their free will and the deep pain that may cause the separation, knowing it will end in their final perdition, are two different things. 
 
@@ -423,7 +421,7 @@ Let us emphasize that the decision to ascend is ethical, ontological, spiritual;
 ## Nirvana
 It is difficult, moreover, to imagine what the opposite might be; that is, a world where everyone follows their authentic plan: it would certainly lead to a state of complete fulfillment, harmony, and stability. It is the end of disease, death, pain, scarcity and oppression. The ancients of different traditions have called this state Nirvana, Heaven on Earth, New Jerusalem, Shambala, Hurqalya, Avalon, the Diamond Realm. 
 
-In our distorted world, desire-and-lack is the fundamental tension that propels us to action, in other words, dissatisfaction is our drive. This dynamic is sometimes sublimated in art or creative projects, but often also leads to crime and error.
+In our distorted world, desire-and-lack is the fundamental tension that propels us to action, dissatisfaction is our drive. This dynamic is sometimes sublimated in art or creative projects, but often also leads to crime and error.
 
 In Nirvana, the dynamic of lack and desire is replaced by curiosity and play, always resulting in instances of creativity. That is, advanced consciousnesses devote themselves to designing complex, diamond-like projects and their execution in stages. There is no time or interest in obstructing others: resources are unlimited, including time.
 
